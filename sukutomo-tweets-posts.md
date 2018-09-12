@@ -11,3 +11,10 @@ https://schoolido.lu/#search=LoveLiveMiniChefsWorldCup2017
 https://schoolido.lu/#search=NozomiBirthdayGiveaway
 
 https://schoolido.lu/#search=KotoriBirthdayGiveaway2018
+
+
+# Can you form a team?
+
+🎂🎁🎈🍰 Can you form a Yazawa Nico team with each attribute? Share them here, and here→ https://schoolido.lu/idol/Yazawa%20Nico/ #LLSIF #LoveLive #スクフェス #ラブライブ
+
+Images courtesy of staff member 
