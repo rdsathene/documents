@@ -1,3 +1,25 @@
+# **Puchiguru Cheer Section Preview**
+
+We announced the [sad news](https://schoolido.lu/activities/10405831/) about *Puchiguru Love Live!*, but for those of us playing until May 31, 2019, the release of Version 3.0 on March 28 did bring some fun new features. One of them is the cheer section, where the chibi versions of characters cheer your game on during play.
+
+Several people on Twitter, and one on [Reddit](https://www.reddit.com/r/Puchiguru/comments/b7127z/you_can_listen_to_all_cheer_voice_clips_by_going/) pointed out that you can preview all of the interactions on a screen.
+
+To reach it click the menu button (the little blue book on the upper right hand corner of the home screen). Then click the button on the button left of the screen labeled "ラブライブとは?"
+
+There's a screen letting you choose between μ's and Aqours.
+
+![Imgur](https://i.imgur.com/pGF90m1.jpg)
+
+Then there's screen where you select two neso characters and buttons appear with the different phrases.
+
+![Imgur](https://i.imgur.com/bXh2hNZ.jpg)
+
+A video of the [process is here](https://youtu.be/WjDwxhnvAnU), and below in the comments.
+
+***
+
+***[友 Sukutomo New Archives](http://schoolido.lu/activities/5464949/)***
+
 # **Puchiguru Love Live! Closing down**
 
 In some rather sad news, the joyful, colorful *Puchiguru Love Live!* game is being closed down. The  franchise [announced the news](https://twitter.com/lovelive_PG/status/1111132105302409217) on March 28, 2019, providing May 31, 2019 as the last day of service.
