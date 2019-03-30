@@ -1,4 +1,4 @@
-*I realized I was looking up the same information, and crafting the same tweets from scratch year after year. I'm creating this both for myself, and whomever my successor will be*
+*I realized I was looking up the same information, and crafting the same tweets from scratch year after year. I'm creating this both for myself, and whomever my successor will be. The images for the tweets appear above the tweets. If using the HackMD version instead of github, be sure to use the md view to copy, so that you avoid pasting unencoded characters into TweetDeck.*
 
 
 # January
