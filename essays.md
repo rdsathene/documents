@@ -1,5 +1,7 @@
 # A charter school story
 
+Appeared originally as my [Twitter thread](https://twitter.com/rdsathene/status/1117914061432184834)
+
 Researching for a case and came across a personal injury settlement between a charter school corporation in the Central Valley and multiple student plaintiffs for some $6-million+. The amount is on the low side considering the horrific injuries some of the students suffered.
 
 It was the typical charter school money-making scam. They had a former employee form an unregistered and uninsured transportation company. The charter's Vice Principle provided one of their family's vehicles to that company. They paid themselves $6K a month from public money to operate a vehicle that had several defective seatbelts. Moreover, they consistently exceeded the vehicle's passenger capacity. Students had to share seats and some had to ride on the floor.
