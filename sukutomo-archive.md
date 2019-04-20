@@ -1,3 +1,20 @@
+# **Aqours Carp Streamer are back[](#)**
+
+![Numazu](https://i.imgur.com/SMHhenv.jpg "Numazu")
+
+As with the last couple of years, Numazu's version of carp streamers for [Childrens' Day](https://en.wikipedia.org/wiki/Children%27s_Day_(Japan)) feature Aqours themes. Here's some photos, and there will be some tweets with photos in the comments below.
+
+Pinwheels with mini-streamers are also on sale.
+
+![Numazu](https://i.imgur.com/1H2Icg0.jpg "Numazu")
+
+Sources: [Franchise Site](http://www.lovelive-anime.jp/uranohoshi/news.php?id=5450), [Numazu City](https://www.city.numazu.shizuoka.jp/kurashi/kyoiku/kyoiku/topics/2019/koinobori/index.htm), 
+
+***
+
+***[友 Sukutomo New Archives](http://schoolido.lu/activities/5464949/)***
+
+
 # **Puchiguru Cheer Section Preview**
 
 We announced the [sad news](https://schoolido.lu/activities/10405831/) about *Puchiguru Love Live!*, but for those of us playing until May 31, 2019, the release of Version 3.0 on March 28 did bring some fun new features. One of them is the cheer section, where the chibi versions of characters cheer your game on during play.
