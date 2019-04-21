@@ -67,7 +67,7 @@ https://i.schoolido.lu/songs/Anemone_heart.jpg
 
 https://i.schoolido.lu/songs/Mermaid_festa_vol.2_Passionate.jpg
 
-🎶 On this day 2012 the duet's 「Mermaid festa vol.2 ~Passionate~」 released ✨ Discuss→ https://schoolido.lu/songs/Mermaid%20festa%20vol.2%20%7EPassionate%7E/ #LLSIF #スクフェス #LoveLive #ラブライブ #μsicforever
+🎶 On this day 2012 the duet's 「Mermaid festa vol.2 \~Passionate\~」 released ✨ Discuss→ https://schoolido.lu/songs/Mermaid%20festa%20vol.2%20%7EPassionate%7E/ #LLSIF #スクフェス #LoveLive #ラブライブ #μsicforever
 
 ## 27
 
