@@ -1,6 +1,6 @@
 # Sukutomo Calendar
 
-*I realized I was looking up the same information, and crafting the same tweets from scratch year after year. I'm creating this both for myself, and whomever my successor will be. The links to images for the tweets appear above the tweets. If using the HackMD version instead of github, be sure to use the md view to copy, so that you avoid pasting unencoded characters into TweetDeck.*
+*I realized I was looking up the same information, and crafting the same tweets from scratch year after year. I'm creating this both for myself, and whomever my successor will be. The links to images for the tweets appear above the tweets.* ***If using the HackMD version instead of GitHub, be sure to use the md edit mode to copy, so that you avoid pasting unencoded characters into TweetDeck.***
 
 # January
 # February
@@ -67,7 +67,7 @@ https://i.schoolido.lu/songs/Anemone_heart.jpg
 
 https://i.schoolido.lu/songs/Mermaid_festa_vol.2_Passionate.jpg
 
-🎶 On this day 2012 the duet's 「Mermaid festa vol.2 \~Passionate\~」 released ✨ Discuss→ https://schoolido.lu/songs/Mermaid%20festa%20vol.2%20%7EPassionate%7E/ #LLSIF #スクフェス #LoveLive #ラブライブ #μsicforever
+🎶 On this day 2012 the duet's 「Mermaid festa vol.2 ~Passionate~」 released ✨ Discuss→ https://schoolido.lu/songs/Mermaid%20festa%20vol.2%20%7EPassionate%7E/ #LLSIF #スクフェス #LoveLive #ラブライブ #μsicforever
 
 ## 27
 
@@ -107,6 +107,17 @@ https://i.schoolido.lu/songs/azalea.png
 
 🎶 On this day 2016 Azalea’s 「Torikoriko PLEASE!!」 released ✨ Discuss→ https://schoolido.lu/songs/%E3%83%88%E3%83%AA%E3%82%B3%E3%83%AA%E3%82%B3PLEASE%21%21/ #LLSIF #スクフェス #LoveLive #ラブライブ #Aqours
 
+
+https://i.schoolido.lu/songs/jQfBZoS7whfYB521Ko8iPezo0fvWJZYt.jpg
+
+🎶 On this day 2018 the solo 「New winding road」 released ✨ Discuss→ https://schoolido.lu/songs/New%20winding%20road/ #LLSIF #スクフェス #LoveLive #ラブライブ #Aqours
+
+
+https://i.schoolido.lu/songs/IAqWDBZGZSLCv0DYF82EZnXj74Ue0IOF.jpg
+
+🎶 On this day 2018 the solo 「Sakana ka Nandaka?」 released ✨ Discuss→ https://schoolido.lu/songs/%E3%81%95%E3%81%8B%E3%81%AA%E3%81%8B%E3%81%AA%E3%82%93%E3%81%9F%E3%82%99%E3%81%8B%3F/ #LLSIF #スクフェス #LoveLive #ラブライブ #Aqours
+
+
 ## 31
 
 https://i.schoolido.lu/songs/5QF0l9eYmqSyPqSzkmh8U1O8cX0OHGmp.jpg
@@ -122,3 +133,7 @@ https://i.schoolido.lu/songs/5QF0l9eYmqSyPqSzkmh8U1O8cX0OHGmp.jpg
 # October
 # November
 # December
+
+
+
+
