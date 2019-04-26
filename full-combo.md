@@ -1,6 +1,6 @@
 # **LLSIF EX/EXR/MASTER FCs**
 
-- [20190425](https://rdsathene.tumblr.com/post/184454480343/my-ex-fc-number-94-was-loneliest-baby-achieved) "Wonder zone" µ's
+- [20190425](https://rdsathene.tumblr.com/post/184454748263/my-ex-fc-number-95-was-wonder-zone-achieved) "Wonder zone" µ's
 - [20190425](https://rdsathene.tumblr.com/post/184454480343/my-ex-fc-number-94-was-loneliest-baby-achieved) "LONELIEST BABY" µ's
 - [20190414](https://rdsathene.tumblr.com/post/184454350173/my-ex-fc-number-93-was-doki-pipo-emotion) "Doki Pipo ☆ Emotion" PDP
 - [20190413](https://rdsathene.tumblr.com/post/184454039208/my-ex-fc-number-92-was-nemureru-mori-ni-ikitai) "Nemureru Mori ni Ikitai na" PDP
