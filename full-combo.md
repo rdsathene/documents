@@ -1,0 +1,98 @@
+# **LLSIF EX/EXR/MASTER FCs**
+
+- [20190425](https://rdsathene.tumblr.com/post/184454480343/my-ex-fc-number-94-was-loneliest-baby-achieved) "Wonder zone" µ's
+- [20190425](https://rdsathene.tumblr.com/post/184454480343/my-ex-fc-number-94-was-loneliest-baby-achieved) "LONELIEST BABY" µ's
+- [20190414](https://rdsathene.tumblr.com/post/184454350173/my-ex-fc-number-93-was-doki-pipo-emotion) "Doki Pipo ☆ Emotion" PDP
+- [20190413](https://rdsathene.tumblr.com/post/184454039208/my-ex-fc-number-92-was-nemureru-mori-ni-ikitai) "Nemureru Mori ni Ikitai na" PDP
+- [20190410](https://rdsathene.tumblr.com/post/184453898068/my-ex-fc-number-91-was-exr-lonely-tuning) EXR "LONELY TUNING" Aqours
+- [20190410](https://rdsathene.tumblr.com/post/184453749873/my-ex-fc-number-90-was-lonely-tuning-achieved) "LONELY TUNING" Aqours
+- [20190405](https://rdsathene.tumblr.com/post/184451079188/my-ex-fc-number-89-was-evergreen-achieved) "Evergreen" PDP
+- [20190327](http://rdsathene.tumblr.com/post/183765647073/my-ex-fc-number-88-was-anata-no-risou-no) "Anata no Risou no Heroine" PDP
+- [20190302](http://rdsathene.tumblr.com/post/183397327898/my-ex-fc-number-87-was-angelic-angel-achieved) "Angelic Angel" µ’s
+- [20190228](http://rdsathene.tumblr.com/post/183397120573/my-ex-fc-number-86-was-snow-halation-winter) "Snow halation" µ’s
+- [20190218](http://rdsathene.tumblr.com/post/183081769648/my-ex-fc-number-85-was-new-winding-road) "New winding road" Aqours
+- [20190216](http://rdsathene.tumblr.com/post/182863291483/my-ex-fc-number-84-was-oyasuminasan-winter) "Oyasuminasan!" Aqours
+- [20190207](http://rdsathene.tumblr.com/post/182665750563/my-ex-fc-number-83-was-suki-desu-ga-suki-desu) “Suki Desu ga Suki Desu ka?”  µ’s
+- [20190207](http://rdsathene.tumblr.com/post/182665422633/my-ex-fc-number-82-was-donna-toki-mo-zutto) “Donna Toki mo Zutto”  µ’s
+- [20190122](http://rdsathene.tumblr.com/post/182314043068/my-ex-fc-number-81-was-thank-you-friends) "Thank you, FRIENDS!!" Aqours
+- [20190121](http://rdsathene.tumblr.com/post/182313905103/my-ex-fc-number-80-was-pops-heart-de-odoru) "Pops heart de Odoru damon!" Aqours
+- [20190118](http://rdsathene.tumblr.com/post/182313719638/my-ex-fc-number-79-was-in-this-unstable-world) "in this unstable world" Aqours
+- [20190118](http://rdsathene.tumblr.com/post/182313281193/my-ex-fc-number-78-was-pianoforte-monologue) "Pianoforte Monologue" Aqours
+- [20190112](http://rdsathene.tumblr.com/post/181968689173/my-ex-fc-number-77-was-koi-ni-naritai-aquarium) "Koi ni Naritai AQUARIUM" Aqours
+- [20190101](http://rdsathene.tumblr.com/post/181967046268/my-ex-fc-number-76-was-someday-of-my-life) "Someday of my life" µ’s
+- [20181230](http://rdsathene.tumblr.com/post/181966657373/my-ex-fc-number-75-was-exr-onaji-hoshi-ga-mitai) "Onaji hoshi ga mitai" µ’s
+- [20181225](http://rdsathene.tumblr.com/post/181964171228/my-ex-fc-number-74-was-jingle-bells-ga) "Jingle Bells ga Tomaranai" Aqours
+- [20181219](http://rdsathene.tumblr.com/post/181241159033/my-ex-fc-number-73-was-happy-maker-achieved) EXR "Happy maker!" µ’s
+- [20181217](http://rdsathene.tumblr.com/post/181240875138/my-ex-fc-number-72-was-heartbeat-achieved) "?←HEARTBEAT" µ’s
+- [20181213](http://rdsathene.tumblr.com/post/181240755623/my-ex-fc-number-71-was-sakkaku-crossroads) "Sakkaku CROSSROADS" µ’s
+- [20181202](http://rdsathene.tumblr.com/post/180801569173/my-ex-fc-number-70-was-galaxy-hide-and-seek) "GALAXY HidE and SeeK" Aqours
+- [20181129](http://rdsathene.tumblr.com/post/180676104868/my-ex-fc-number-69-was-kimi-no-kokoro-wa) "Kimi no Kokoro wa Kagayaiteru kai?" Aqours
+- [20181119](http://rdsathene.tumblr.com/post/180675909148/my-ex-fc-number-68-was-kaguya-no-shiro-de) "Kaguya no Shiro de Odoritai" µ’s
+- [20181117](http://rdsathene.tumblr.com/post/180675539693/my-ex-fc-number-67-was-eien-friends-achieved) "Eien Friends" µ’s
+- [20181112](http://rdsathene.tumblr.com/post/180062673223/my-ex-fc-number-66-was-future-style-achieved) "Future style" µ’s
+- [20181106](http://rdsathene.tumblr.com/post/179850319548/my-ex-fc-number-65-was-storm-in-lover-fall) "Storm in Lover" µ’s
+- [20181102](http://rdsathene.tumblr.com/post/179780382073/my-ex-fc-number-64-was-sunny-day-song-achieved) "SUNNY DAY SONG" µ’s
+- [20181027](http://rdsathene.tumblr.com/post/179504958633/my-ex-fc-number-64-was-takaramonos-achieved) "Takaramonos" µ’s
+- [20181026](http://rdsathene.tumblr.com/post/179477498143/my-ex-fc-number-63-was-cutie-panther-achieved) "Cutie Panther" µ’s
+- [20181020](http://rdsathene.tumblr.com/post/179270670353/my-ex-fc-number-62-was-mattete-ai-no-uta) "Mattete Ai no Uta" Aqours
+- [20181017](http://rdsathene.tumblr.com/post/179204962858/my-ex-fc-number-61-was-torikoriko-please) "Torikoriko PLEASE!!" Aqours
+- [20181013](http://rdsathene.tumblr.com/post/179036593768/my-ex-fc-number-60-was-innocent-bird-achieved) "INNOCENT BIRD" Aqours
+- [20181012](http://rdsathene.tumblr.com/post/179036454878/my-exexr-fc-number-59-was-random-innocent) EXR "INNOCENT BIRD" Aqours
+- [20181009](http://rdsathene.tumblr.com/post/179036095153/my-ex-fc-number-58-was-white-first-love-fall) "WHITE FIRST LOVE" Aqours
+- [20181009](http://rdsathene.tumblr.com/post/179034497383/my-ex-fc-number-57-was-red-gem-wink-fall) "RED GEM WINK" Aqours
+- [20181008](http://rdsathene.tumblr.com/post/178900874718/my-ex-fc-number-56-was-museum-de-doushitai) "MUSEUM de Doushitai?" µ’s
+- [20181008](http://rdsathene.tumblr.com/post/178900871728/my-ex-fc-number-55-was-shunjou-romantic) "Shunjou Romantic" µ’s
+- [20181003](http://rdsathene.tumblr.com/post/178752756213/my-ex-fc-number-54-was-thank-you-friends) "Thank you, FRIENDS!!" Aqours
+- [20181002](http://rdsathene.tumblr.com/post/178752644768/my-ex-fc-number-53-was-wild-stars-achieved) "WILD STARS" µ’s
+- [20180921](http://rdsathene.tumblr.com/post/178752472798/my-exr-fc-number-3-was-silent-tonight-achieved) EXR "Silent tonight" µ’s
+- [20180921](http://rdsathene.tumblr.com/post/178752268363/my-ex-fc-number-51-was-silent-tonight-achieved) "Silent tonight" µ’s
+- [20180903](http://rdsathene.tumblr.com/post/177984568238/my-ex-fc-number-50-was-shoujo-ijou-no-koi-ga) “Shoujo Ijou no Koi ga Shitai” Aqours
+- [20180819](http://rdsathene.tumblr.com/post/177298639793/my-ex-fc-number-49-was-shangri-la-shower) "Shangri-La Shower" µ's
+- [20180715](http://rdsathene.tumblr.com/post/176904832548/my-ex-fc-number-48-was-daydream-warrior) "Daydream Warrior" Aqours
+- [20180704](http://rdsathene.tumblr.com/post/176903821698/my-ex-fc-number-47-was-kimi-no-hitomi-o-meguru) "Kimi no Hitomi o Meguru Bouken" Aqours
+- [20180628](http://rdsathene.tumblr.com/post/176903539753/my-ex-fc-number-46-was-endless-parade-achieved) "ENDLESS PARADE" µ's
+- [20180628](http://rdsathene.tumblr.com/post/176902838183/my-ex-fc-number-45-was-ai-wa-taiyou-janai) "Ai wa Taiyou Janai?" µ's
+- [20180604](http://rdsathene.tumblr.com/post/174575613563/my-ex-fc-number-41-was-shadow-gate-to-love) "Shadow gate to love" Aqours
+- [20180526](http://rdsathene.tumblr.com/post/174574967753/my-ex-fc-number-41-was-bokura-wa-ima-no-naka-de) "Bokura wa Ima no Naka de" µ's
+- [20180425](http://rdsathene.tumblr.com/post/173331088523/my-master-fc-number-2-was-moshimo-kara-kitto) MASTER "Moshimo kara Kitto" µ's
+- [20180423](http://rdsathene.tumblr.com/post/173269725718/my-ex-fc-number-40-was-random-saitei-de-saikou) "Saitei de Saikou no Paradiso" µ's
+- [20180407](http://rdsathene.tumblr.com/post/172714647528/my-exexr-fc-number-39-was-random-shadow-gate) EXR "Shadow gate to love" Aqours
+- [20180406](http://rdsathene.tumblr.com/post/172691229643/my-ex-fc-number-38-was-shadow-gate-to-love) "Shadow gate to love" Aqours
+- [20180325](http://rdsathene.tumblr.com/post/172671260553/my-ex-fc-number-37-was-soshite-saigo-no-page-ni) "Soshite Saigo no Page ni wa" µ's
+- [20180321](http://rdsathene.tumblr.com/post/172115828518/my-ex-fc-number-36-was-silent-tonight-achieved) "Silent tonight" µ's
+- [20180314](http://rdsathene.tumblr.com/post/171882805643/my-master-fc-number-1-was-futari-happiness-this) MASTER "Futari Happiness" µ's
+- [20180128](http://rdsathene.tumblr.com/post/170359139103/my-ex-fc-number-35-was-kore-kara-no-someday) "Kore kara no Someday" µ's
+- [20180117](http://rdsathene.tumblr.com/post/169912230203/the-same-day-i-managed-my-second-10-star-fc-i) EXR "Mahoutsukai Hajimemashita!" µ's
+- [20180117](http://rdsathene.tumblr.com/post/169827130508/took-me-2-%C2%BD-years-to-fc-my-first-10-star-but-only) "Diamond Princess no Yuuutsu" µ's
+- [20180115](http://rdsathene.tumblr.com/post/169743205798/my-ex-fc-number-32-was-bokutachi-wa-hitotsu-no) "Bokutachi wa Hitotsu no Hikari" µ's
+- [20171214](http://rdsathene.tumblr.com/post/168585090233/finally-the-elusive-10-star-my-ex-fc-number-31) "Love marginal" µ's
+- [20171211](http://rdsathene.tumblr.com/post/168582809923/ex-fc-number-30-was-kore-kara-i-never-seen-this) "Kore kara" µ's
+- [20171126](http://rdsathene.tumblr.com/post/167993122063/ex-fc-number-29-is-mahoutsukai-hajimemashita) "Mahoutsukai Hajimemashita!" µ's
+- [20171106](http://rdsathene.tumblr.com/post/167361606778/my-ex-fc-number-28-is-taiyou-wo-oikakero-as) "Taiyou Wo Oikakero!" Aqours
+- [20170920](http://rdsathene.tumblr.com/post/165596285073/my-ex-fc-number-27-is-sweet-sweet-holiday) "Sweet & Sweet Holiday" µ's
+- [20170814](http://rdsathene.tumblr.com/post/164346824813) "after school NAVIGATORS" µ's
+- [20170705](http://rdsathene.tumblr.com/post/162919205938/i-managed-another-a-rise-song-for-my-ex-fc-number) "Shocking Party" A-RISE
+- [20170615](http://rdsathene.tumblr.com/post/161877185113/my-ex-fc-number-24-is-µs-natsu-iro-egao-de-1-2) “Natsu-iro Egao de 1, 2, Jump!” µ's
+- [20170406](http://rdsathene.tumblr.com/post/159288718743/aqours-sora-mo-kokoro-mo-hareru-kara-is-my-ex) “Sora Mo Kokoro Mo Hareru Kara” Aqours
+- [20170323](http://rdsathene.tumblr.com/post/158815900058/ex-fc-number-22-µs-no-brand-girls-ive) “No brand girls” µ's
+- [20170302](http://rdsathene.tumblr.com/post/157923497858/kusuda-ainas-moshimo-kara-kitto-represents-ex) "Moshimo kara Kitto" µ's
+- [20170222](http://rdsathene.tumblr.com/post/157603303323/aqours-yume-de-yozora-o-terashitai-is-ex-fc) "Yume de Yozora o Terashitai" Aqours
+- [20170215](http://rdsathene.tumblr.com/post/157374662638/ex-fc-number-19-is-ohlovepeace-i-gambled) "Oh,Love&Peace!”" µ's
+- [20170127](http://rdsathene.tumblr.com/post/156993752723/aishiteru-banzai-is-ex-fc-number-18-i-fced-it) "Aishiteru Banzai!" µ's
+- [20170119](http://rdsathene.tumblr.com/post/156184423318/wonderful-rush-is-my-ex-fc-number-17-this-was) "Wonderful Rush" µ's
+- [20170112](http://rdsathene.tumblr.com/post/155841910163/nightingale-love-song-makes-16-ex-fcs-i-had) "Nightingale Love Song" µ's
+- [20170112](http://rdsathene.tumblr.com/post/155841745198/fuyu-ga-kureta-yokan-is-my-15th-ex-fc-i-had) "Fuyu ga Kureta Yokan" µ's
+- [20161229](http://rdsathene.tumblr.com/post/155150333703/mijuku-dreamer-makes-it-14-ex-fcs-to-date) "Mijuku Dreamer" Aqours
+- [20161226](http://rdsathene.tumblr.com/post/155003000113/seinaru-hino-inori-is-number-13-for-me-i-didnt) "Seinaru Hino Inori" Aqours
+- [20161119](http://rdsathene.tumblr.com/post/153411961353/omoide-ijou-ni-naritakute-is-number-13-for-me) "Omoide Ijou ni Naritakute" µ's
+- [20161117](http://rdsathene.tumblr.com/post/153318067358/private-wars-a-rise-thought-this-was-number-ten) "Private Wars" A-RISE
+- [20161116](http://rdsathene.tumblr.com/post/153282735173/now-to-switch-to-a-score-up-team-this-actually) "Tokimeki Bunruigaku" Aqours
+- [20161014](http://rdsathene.tumblr.com/post/151821276758/didnt-have-much-of-a-chance-to-play-today-until-i) “Unbalanced Love” µ's
+- [20160822](http://rdsathene.tumblr.com/post/149544139698/morning-of-the-last-day-of-the-second-august) “baby maybe Koi no Button” µ's
+- [20160815](http://rdsathene.tumblr.com/post/148971322748/busy-busy-i-fced-the-ex-event-song-yozora-wa) “Yozora wa Nandemo Shitteru no?” Aqours
+- [20160813](http://rdsathene.tumblr.com/post/148942227883/after-numerous-failed-attemps-to-fc-niko) “Mou Hitori Ja Nai yo” µ's
+- [20160808](http://rdsathene.tumblr.com/post/148629984203/i-finally-full-combo-futari-happiness-in-the) “Futari Happiness” µ's
+- [20160616](http://rdsathene.tumblr.com/post/146199434868/keep-missing-the-full-combo-by-one-note-prior-to) “SENTIMENTAL StepS” µ's
+- [20160411](http://rdsathene.tumblr.com/post/142619646423/ex-fc-number-3-after-several-hours-of) “Mogyutto “love” de Sekkin Chuu!” µ's
+- [20160410](http://rdsathene.tumblr.com/post/142598708913/it-was-over-a-month-or-so-ago-that-i-gave-up-on) “Bokura no LIVE Kimi to no LIFE” µ's
+- [20160315](http://rdsathene.tumblr.com/post/141115079378/nearly-ten-months-of-playing-llsif-i-finally) “Kimi No Kuse Ni!” µ's
