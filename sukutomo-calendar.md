@@ -223,11 +223,57 @@ https://i.schoolido.lu/songs/Strawberry_Trapper.jpg
 
 🎶 On this day 2016 Guilty Kiss’ 「Strawberry Trapper」 released ✨ Discuss→ https://schoolido.lu/songs/Strawberry%20Trapper/ #LLSIF #スクフェス #LoveLive #ラブライブ #Aqours
 
+## 9
+
+http://st.cdjapan.co.jp/pictures/l/16/46/LABX-8333.jpg
+
+🎶 On this day 2018 Day One 「Aqours 3rd Love Live! Tour Wonderful Stories」 (Saitama) 🍊⛵🎹💮✨🐬🍭🌼😈 Memorialized→ http://www.cdjapan.co.jp/aff/click.cgi/PytJTGW7Lok/5590/A364348/product%2FLABX-8333 #LLSIF #スクフェス #LoveLive #ラブライブ #Aqours
+
+## 11
+
+https://i.schoolido.lu/songs/Love_wing_bell.jpg
+
+🎶 On this day 2014 the sextet’s 「Love Wing Bell」 released ✨ Discuss→ https://schoolido.lu/songs/Love%20wing%20bell/ #LLSIF #スクフェス #LoveLive #ラブライブ #μsicforever 
+
+
+https://i.schoolido.lu/songs/Dancing_stars_on_me.jpg
+
+🎶 On this day 2014 μ’s 「Dancing stars on me!」 released ✨ Discuss→ https://schoolido.lu/songs/Dancing%20stars%20on%20me%21/ #LLSIF #スクフェス #LoveLive #ラブライブ #μsicforever 
+
+
+## 16
+
+http://st.cdjapan.co.jp/pictures/l/16/37/LABX-8044.jpg
+
+🎶 On this day 2013 「μ's 3rd Anniversary Love Live!」 (Yokohama) ⭐🎥⭐ Memorialized→ http://www.cdjapan.co.jp/aff/click.cgi/PytJTGW7Lok/5590/A364348/product%2FLABX-8044 #LLSIF #スクフェス #LoveLive #ラブライブ #Aqours
+
+
+
+
+## 17
+
+http://st.cdjapan.co.jp/pictures/l/16/22/LABX-38333.jpg
+
+🎶 On this day 2018 Day Two 「Aqours 3rd Love Live! Tour Wonderful Stories」 (Osaka) 🍊⛵🎹💮✨🐬🍭🌼😈 Memorialized→ http://www.cdjapan.co.jp/aff/click.cgi/PytJTGW7Lok/5590/A364348/product%2FLABX-38333 #LLSIF #スクフェス #LoveLive #ラブライブ #Aqours
+
+
+## 20
+
+https://i.schoolido.lu/songs/シアワセ行きのSMILING.jpg
+
+🎶 On this day 2014 the solo 「Shiawase-iki no SMILING!」 released ✨ Discuss→ https://schoolido.lu/songs/%E3%82%B7%E3%82%A2%E3%83%AF%E3%82%BB%E8%A1%8C%E3%81%8D%E3%81%AESMILING%21/ #LLSIF #スクフェス #LoveLive #ラブライブ #μsicforever 
+
+
 ## 21
 
 https://i.schoolido.lu/songs/Rl8BBJwDzAfANNOvBV9pVoiZNeUvdbyf.jpg
 
 🎶 On this day 2017 Guilty Kiss’ 「Kowareyasuki」 released ✨ Discuss→ https://schoolido.lu/songs/%E3%82%B3%E3%83%AF%E3%83%AC%E3%83%A4%E3%82%B9%E3%82%AD/ #LLSIF #スクフェス #LoveLive #ラブライブ #Aqours
+
+https://i.schoolido.lu/songs/Beat_in_Angel.jpg
+
+🎶 On this day 2013 the duet’s 「Beat in Angel」 released ✨ Discuss→ https://schoolido.lu/songs/Beat%20in%20Angel/ #LLSIF #スクフェス #LoveLive #ラブライブ #μsicforever 
+
 
 ## 22
 
@@ -247,20 +293,118 @@ https://vignette.wikia.nocookie.net/love-live/images/0/00/Guilty_farewell_party.
 
 🎶 On this day 2018 Guilty Kiss’ 「Guilty!? Farewell Party」 released ✨ Discuss→ https://schoolido.lu/songs/ #LLSIF #スクフェス #LoveLive #ラブライブ #Aqours
 
+
+https://i.schoolido.lu/songs/RonmWHMZCAZ1P5uwXKzhCmVdmqFDTTLm.jpg
+
+🎶 On this day 2018 Aqours’ 「Kiseki Hikaru」 released ✨ Discuss→ https://schoolido.lu/songs/%E3%82%AD%E3%82%BB%E3%82%AD%E3%83%92%E3%82%AB%E3%83%AB/ #LLSIF #スクフェス #LoveLive #ラブライブ #Aqours
+
+
+https://i.schoolido.lu/songs/%E3%83%80%E3%82%A4%E3%83%A4%E3%83%A2%E3%83%B3%E3%83%89%E3%83%97%E3%83%AA%E3%83%B3%E3%82%BB%E3%82%B9%E3%81%AE%E6%86%82%E9%AC%B1.jpg
+
+🎶 On this day 2011 BiBi’s 「Diamond Princess no Yuuutsu」 released ✨ Discuss→ https://schoolido.lu/songs/%E3%83%80%E3%82%A4%E3%83%A4%E3%83%A2%E3%83%B3%E3%83%89%E3%83%97%E3%83%AA%E3%83%B3%E3%82%BB%E3%82%B9%E3%81%AE%E6%86%82%E9%AC%B1/ #LLSIF #スクフェス #LoveLive #ラブライブ #μsicforever 
+
+## 26
+
+https://i.schoolido.lu/songs/微熱からMystery.jpg
+
+🎶 On this day 2013 Lily White’s 「Binetsu kara Mystery」 released ✨ Discuss→ https://schoolido.lu/songs/%E5%BE%AE%E7%86%B1%E3%81%8B%E3%82%89Mystery/ #LLSIF #スクフェス #LoveLive #ラブライブ #μsicforever 
+
+
+## 27
+
+https://i.schoolido.lu/songs/%E5%91%8A%E7%99%BD%E6%97%A5%E5%92%8C%E3%81%A7%E3%81%99.jpg
+
+🎶 On this day 2012 the duet’s 「Kokuhaku Biyori, Desu!」 released ✨ Discuss→ https://schoolido.lu/songs/%E3%83%80%E3%82%A4%E3%83%A4%E3%83%A2%E3%83%B3%E3%83%89%E3%83%97%E3%83%AA%E3%83%B3%E3%82%BB%E3%82%B9%E3%81%AE%E6%86%82%E9%AC%B1/ #LLSIF #スクフェス #LoveLive #ラブライブ #μsicforever 
+
 ## 30
 
 https://i.schoolido.lu/songs/plBjFOzvOYk0vp5PdvWWlbBYkQM4s1Sd.jpg
 
 🎶 On this day 2017 Aqours’ 「Landing Action Yeah!!」 released ✨ Discuss→ https://schoolido.lu/songs/Landing%20action%20Yeah%21%21/ #LLSIF #スクフェス #LoveLive #ラブライブ #Aqours
 
+https://i.schoolido.lu/songs/89VdtqhwnuWmC7mjlXKP2WFQRwxL0J3L.jpg
+
+🎶 On this day 2018 Aqours’ 「Hoppu・Suteppu・Waai!」 released ✨ Discuss→ https://schoolido.lu/songs/%E3%83%9B%E3%83%83%E3%83%95%E3%82%9A%E3%83%BB%E3%82%B9%E3%83%86%E3%83%83%E3%83%95%E3%82%9A%E3%83%BB%E3%83%AF%E3%83%BC%E3%82%A4%EF%BC%81/ #LLSIF #スクフェス #LoveLive #ラブライブ #Aqours
 
 # July
+
+## 1
+
+https://i.schoolido.lu/songs/Angelic_Angel.jpg
+
+🎶 On this day 2015 μ's 「Angelic Angel」 released ✨ Discuss→ https://schoolido.lu/songs/Angelic%20Angel/ #LLSIF #スクフェス #LoveLive #ラブライブ #μsicforever 
+
+
+https://i.schoolido.lu/songs/Hello星を数えて.jpg
+
+🎶 On this day 2015 the first-year trio's 「Hello, Hoshi wo Kazoete」 released ✨ Discuss→ https://schoolido.lu/songs/Hello%2C%E6%98%9F%E3%82%92%E6%95%B0%E3%81%88%E3%81%A6/ #LLSIF #スクフェス #LoveLive #ラブライブ #μsicforever 
+
+
+
+## 8
+
+https://i.schoolido.lu/songs/SUNNY_DAY_SONG.jpg
+
+🎶 On this day 2015 μ's 「Sunny Day Song」 released ✨ Discuss→ https://schoolido.lu/songs/SUNNY%20DAY%20SONG/ #LLSIF #スクフェス #LoveLive #ラブライブ #μsicforever 
+
+
+https://i.schoolido.lu/songs/HEARTBEAT.jpg
+
+🎶 On this day 2015 the third-year trio's 「?←HEARTBEAT」 released ✨ Discuss→ https://schoolido.lu/songs/SUNNY%20DAY%20SONG/ #LLSIF #スクフェス #LoveLive #ラブライブ #μsicforever 
+
+
+## 9
+
+https://i.schoolido.lu/songs/KiRa-KiRa_Sensation.jpg
+
+🎶 On this day 2014 μ's 「KiRa-KiRa Sensation!」 released ✨ Discuss→ https://schoolido.lu/songs/KiRa-KiRa%20Sensation%21/ #LLSIF #スクフェス #LoveLive #ラブライブ #μsicforever 
+
+
+https://i.schoolido.lu/songs/Happy_maker.jpg
+
+🎶 On this day 2014 μ's 「Happy Maker!」 released ✨ Discuss→ https://schoolido.lu/songs/Happy%20maker%21/ #LLSIF #スクフェス #LoveLive #ラブライブ #μsicforever 
+
+
+## 15
+
+https://i.schoolido.lu/songs/%E5%83%95%E3%81%9F%E3%81%A1%E3%81%AF%E3%81%B2%E3%81%A8%E3%81%A4%E3%81%AE%E5%85%89.jpg
+
+🎶 On this day 2015 the trio's 「Bokutachi wa Hitotsu no Hikari」 released ✨ Discuss→ https://schoolido.lu/songs/%E5%83%95%E3%81%9F%E3%81%A1%E3%81%AF%E3%81%B2%E3%81%A8%E3%81%A4%E3%81%AE%E5%85%89/ #LLSIF #スクフェス #LoveLive #ラブライブ #μsicforever 
+
+
+https://i.schoolido.lu/songs/Future_style.jpg
+
+🎶 On this day 2015 the trio's 「Future style」 released ✨ Discuss→ https://schoolido.lu/songs/Future%20style/ #LLSIF #スクフェス #LoveLive #ラブライブ #μsicforever 
+
+
+
+## 20
+
+https://i.schoolido.lu/songs/jumpingheart.png
+
+🎶 On this day 2016 Aqours' 「Aozora Jumping Heart」 released ✨ Discuss→ https://schoolido.lu/songs/%E9%9D%92%E7%A9%BAJumping%20Heart/ #LLSIF #スクフェス #LoveLive #ラブライブ #Aqours 
+
+
+## 25
+
+https://i.schoolido.lu/songs/%E3%81%99%E3%82%99%E3%82%8B%E3%81%84%E3%82%88Magnetic_today.jpg
+
+🎶 On this day 2014 the duet 「Zurui yo Magnetic today」 released ✨ Discuss→ https://schoolido.lu/songs/%E3%81%99%E3%82%99%E3%82%8B%E3%81%84%E3%82%88Magnetic%20today/ #LLSIF #スクフェス #LoveLive #ラブライブ #μsicforever 
+
+
+## 26
+
+https://i.schoolido.lu/songs/%E3%81%AB%E3%81%93%E3%81%B5%E3%82%9A%E3%82%8A%E5%A5%B3%E5%AD%90%E9%81%93.jpg
+
+🎶 On this day 2013 the solo 「Nico Puri Joshi Do」 released ✨ Discuss→ https://schoolido.lu/songs/%E3%81%AB%E3%81%93%E3%81%B5%E3%82%9A%E3%82%8A%E2%99%A1%E5%A5%B3%E5%AD%90%E9%81%93/ #LLSIF #スクフェス #LoveLive #ラブライブ #μsicforever 
+
+
+
+
+
+
 # August
 # September
 # October
 # November
 # December
-
-
-
-
