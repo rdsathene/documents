@@ -4,37 +4,37 @@
 
 
 
-incorporate birthdays [see more here](https://decaf.kouhi.me/lovelive/index.php?title=Category:Other_Characters)
-Dia Kurosawa- January 1st
-Hanayo Koizumi- January 17th
-Kasumi Nakasu- January 23rd
-Emma Verde- February 5th
-Kanan Matsuura- February 10th
-Ayumu Uehara- March 1st
-Hanamaru Kunikida- March 4th
-Umi Sonoda- March 15th
-Shizuku Osaka- April 3rd
-You Watanabe- April 17th
-Maki Nishikino- April 19th
-Ai Miyashita- May 30th
-Nozomi Tojo- June 9th
-Mari Ohara- June 13th
-Karin- June 26th
-Yoshiko Tsushima- July 13th
-Nico Yazawa- July 22nd 
-Chika Takami- August 1st
-Honoka Kosaka- August 3rd
-Setsuna Yuki- August 8th
-Kotori Minami- September 12th
-Riko Sakurauchi- September 19th
-Ruby Kurosawa- September 21st
-Eli Ayase- October 21st
-Rin Hoshizora- November 1st
-Rina Tennoji- November 13th
-Kanata- December 16th
+incorporate birthdays [see more here](https://decaf.kouhi.me/lovelive/index.php?title=Category:Other_Characters)  
+Dia Kurosawa- January 1st  
+Hanayo Koizumi- January 17th  
+Kasumi Nakasu- January 23rd  
+Emma Verde- February 5th  
+Kanan Matsuura- February 10th  
+Ayumu Uehara- March 1st  
+Hanamaru Kunikida- March 4th  
+Umi Sonoda- March 15th  
+Shizuku Osaka- April 3rd  
+You Watanabe- April 17th  
+Maki Nishikino- April 19th  
+Ai Miyashita- May 30th  
+Nozomi Tojo- June 9th  
+Mari Ohara- June 13th  
+Karin- June 26th  
+Yoshiko Tsushima- July 13th  
+Nico Yazawa- July 22nd  
+Chika Takami- August 1st  
+Honoka Kosaka- August 3rd  
+Setsuna Yuki- August 8th  
+Kotori Minami- September 12th  
+Riko Sakurauchi- September 19th  
+Ruby Kurosawa- September 21st  
+Eli Ayase- October 21st  
+Rin Hoshizora- November 1st  
+Rina Tennoji- November 13th  
+Kanata- December 16th  
 
-May 4 Kazuno Sarah
-December 12 Kazuno Leah
+May 4 Kazuno Sarah  
+December 12 Kazuno Leah  
 
 
 # January
@@ -385,11 +385,24 @@ https://i.schoolido.lu/songs/jumpingheart.png
 🎶 On this day 2016 Aqours' 「Aozora Jumping Heart」 released ✨ Discuss→ https://schoolido.lu/songs/%E9%9D%92%E7%A9%BAJumping%20Heart/ #LLSIF #スクフェス #LoveLive #ラブライブ #Aqours 
 
 
+## 24
+
+https://i.schoolido.lu/songs/Cutie_Panther.jpg
+
+🎶 On this day 2013 BiBi's 「Cutie Panther」 released ✨ Discuss→ https://schoolido.lu/songs/Cutie%20Panther/ #LLSIF #スクフェス #LoveLive #ラブライブ #μsicforever 
+
+
+
 ## 25
 
 https://i.schoolido.lu/songs/%E3%81%99%E3%82%99%E3%82%8B%E3%81%84%E3%82%88Magnetic_today.jpg
 
-🎶 On this day 2014 the duet 「Zurui yo Magnetic today」 released ✨ Discuss→ https://schoolido.lu/songs/%E3%81%99%E3%82%99%E3%82%8B%E3%81%84%E3%82%88Magnetic%20today/ #LLSIF #スクフェス #LoveLive #ラブライブ #μsicforever 
+🎶 On this day 2014 the duet's 「Zurui yo Magnetic today」 released ✨ Discuss→ https://schoolido.lu/songs/%E3%81%99%E3%82%99%E3%82%8B%E3%81%84%E3%82%88Magnetic%20today/ #LLSIF #スクフェス #LoveLive #ラブライブ #μsicforever 
+
+
+https://i.schoolido.lu/songs/soldier_game.jpg
+
+🎶 On this day 2012 the trio's 「Soldier Game」 released ✨ Discuss→ https://schoolido.lu/songs/soldier%20game/ #LLSIF #スクフェス #LoveLive #ラブライブ #μsicforever 
 
 
 ## 26
@@ -399,12 +412,84 @@ https://i.schoolido.lu/songs/%E3%81%AB%E3%81%93%E3%81%B5%E3%82%9A%E3%82%8A%E5%A5
 🎶 On this day 2013 the solo 「Nico Puri Joshi Do」 released ✨ Discuss→ https://schoolido.lu/songs/%E3%81%AB%E3%81%93%E3%81%B5%E3%82%9A%E3%82%8A%E2%99%A1%E5%A5%B3%E5%AD%90%E9%81%93/ #LLSIF #スクフェス #LoveLive #ラブライブ #μsicforever 
 
 
+## 27
 
+https://i.schoolido.lu/songs/iTh9wIHCyZHpBOuszlRi8XQWX2merBtL.png
 
+🎶 On this day 2011 Lily White's 「Shiranai Love * Oshiete Love」 released ✨ Discuss→ https://schoolido.lu/songs/%E7%9F%A5%E3%82%89%E3%81%AA%E3%81%84Love%2A%E6%95%99%E3%81%88%E3%81%A6Love/ #LLSIF #スクフェス #LoveLive #ラブライブ #μsicforever 
 
 
 # August
+
+## 1
+
+https://i.schoolido.lu/songs/G16nGsSSfL5bq7spoP0D6NFMjyawisHI.jpg
+
+🎶 On this day 2018 Aqours' 「Thank you, Friends!!」 released ✨ Discuss→ https://schoolido.lu/songs/Thank%20you%2C%20FRIENDS%21%21/ #LLSIF #スクフェス #LoveLive #ラブライブ #Aqours 
+
+
+https://i.schoolido.lu/songs/G16nGsSSfL5bq7spoP0D6NFMjyawisHI.jpg
+
+🎶 On this day 2018 Aqours' 「No.10」 released ✨ Discuss→ https://schoolido.lu/songs/ #LLSIF #スクフェス #LoveLive #ラブライブ #Aqours 
+
+
+## 2
+
+https://i.schoolido.lu/songs/3TwMMvVS7uIwORz6HfhvIjFQFjwJGXdm.jpg
+
+🎶 On this day 2017 the duet's 「Natsu he no Tobira Never end ver.」 released ✨ Discuss→ https://schoolido.lu/songs/%E5%A4%8F%E3%81%B8%E3%81%AE%E6%89%89%20Never%20end%20ver./ #LLSIF #スクフェス #LoveLive #ラブライブ #Aqours 
+
+
+https://i.schoolido.lu/songs/rngINmUhBvNZCcyOdmFb4lXgiXTcnQRH.jpg
+
+🎶 On this day 2017 the duet's 「Manatsu wa Dare no Mono?」 released ✨ Discuss→ https://schoolido.lu/songs/%E7%9C%9F%E5%A4%8F%E3%81%AF%E8%AA%B0%E3%81%AE%E3%83%A2%E3%83%8E%EF%BC%9F/ #LLSIF #スクフェス #LoveLive #ラブライブ #Aqours 
+
+
+https://i.schoolido.lu/songs/rngINmUhBvNZCcyOdmFb4lXgiXTcnQRH.jpg
+
+🎶 On this day 2017 the duet's 「Manatsu wa Dare no Mono?」 released ✨ Discuss→ https://schoolido.lu/songs/%E7%9C%9F%E5%A4%8F%E3%81%AF%E8%AA%B0%E3%81%AE%E3%83%A2%E3%83%8E%EF%BC%9F/ #LLSIF #スクフェス #LoveLive #ラブライブ #Aqours 
+
+
+https://i.schoolido.lu/songs/JcShu4vYIm8wEIxC55sIt4kuddaweYZb.jpg
+
+🎶 On this day 2017 the duet's 「Jimo Ai ♡ Mantan ☆ Summer Life」 released ✨ Discuss→ https://schoolido.lu/songs/%E5%9C%B0%E5%85%83%E6%84%9B%E2%99%A1%E6%BA%80%E3%82%BF%E3%83%B3%E2%98%86%E3%82%B5%E3%83%9E%E3%83%BC%E3%83%A9%E3%82%A4%E3%83%95/ #LLSIF #スクフェス #LoveLive #ラブライブ #Aqours 
+
+
+https://i.schoolido.lu/songs/ju5VGYkIUEYmpbrn10WnWM5j1A6TEHgM.jpg
+
+🎶 On this day 2017 the trio's 「Natsu no Owari no Amaoto ga」 released ✨ Discuss→ https://schoolido.lu/songs/%E5%9C%B0%E5%85%83%E6%84%9B%E2%99%A1%E6%BA%80%E3%82%BF%E3%83%B3%E2%98%86%E3%82%B5%E3%83%9E%E3%83%BC%E3%83%A9%E3%82%A4%E3%83%95/ #LLSIF #スクフェス #LoveLive #ラブライブ #Aqours 
+
+
+
+## 3
+
+https://i.schoolido.lu/songs/j_aq_0476_1.png
+
+🎶 On this day 2016 the trio's 「Kimeta yo Hand in Hand」 released ✨ Discuss→ https://schoolido.lu/songs/%E6%B1%BA%E3%82%81%E3%81%9F%E3%82%88Hand%20in%20Hand/ #LLSIF #スクフェス #LoveLive #ラブライブ #Aqours 
+
+
+https://i.schoolido.lu/songs/4540774145218.jpg
+
+🎶 On this day 2016 the trio's 「Daisuki dattara Daijoubu!」 released ✨ Discuss→ https://schoolido.lu/songs/%E3%82%BF%E3%82%99%E3%82%A4%E3%82%B9%E3%82%AD%E3%81%9F%E3%82%99%E3%81%A3%E3%81%9F%E3%82%89%E3%82%BF%E3%82%99%E3%82%A4%E3%82%B7%E3%82%99%E3%83%A7%E3%82%A6%E3%83%95%E3%82%99%21/ #LLSIF #スクフェス #LoveLive #ラブライブ #Aqours 
+
+
+
+## 5
+
+http://st.cdjapan.co.jp/pictures/l/05/15/LACA-15498.jpg
+
+🎶 On this day the soundtrack *Notes of School Idol Days: Curtain Call* released ✨ Get your copy 💸 http://www.cdjapan.co.jp/aff/click.cgi/PytJTGW7Lok/5590/A364348/product%2FLACA-15498 #LoveLive #LLSIF #スクフェス #μsicforever
+
+
+
+
+
+
+
 # September
 # October
 # November
 # December
+
+
+
