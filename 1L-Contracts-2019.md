@@ -1,5 +1,9 @@
 # 1L Contracts 2019
 
+> “…he laughed at him for imagining the dishonesty and covetousness of his countrymen could be restrained by written laws, which were like spiders’ webs, and would catch, it is true, the weak and poor, but easily be broken by the mighty and rich” — [Plutarch](https://http://classics.mit.edu/Plutarch/solon.html) *Solon*
+ 
+Many thanks to Alex Rodriguez of the Law Offices of Hirji and Chau, LLP for introducing PCL to CALI.org
+
 ## Fall Syllabus
 
 ### Week 1 : September 5
@@ -62,7 +66,7 @@ Optional: *Haines v. City of New York* | *Wagenseller v. Scottsdale Memorial Hos
 
 ### Week 4 : September 26
 
-Offer continued, **option** contracts, and (merchants') **firm offers**
+Offer continued, **option** contracts, and (merchants') **firm offers**.
 
 Casebook
 
@@ -78,13 +82,21 @@ Optional: http://j.mp/33ofC6n | http://j.mp/2M9uoZn
 
 ### Week 5 : October 3
 
-subjects
+Acceptance, CL-mirror v. UCC reasonable, mailbox rule.
 
 Casebook
 
-CALI 
+*Broadnax v. Ledbetter*
 
-Optional: 
+*MCC–Marble Ceramic Center, Inc. v. Ceramica Nuova D'Agostino*
+
+*Carlill v. Carbolic Smoke Ball*
+
+*Ardente v. Horan*
+
+CALI https://www.cali.org/lesson/16932?CON61P | https://www.cali.org/lessonlink/815/CON61/6035/jq 
+
+Optional: A.W. Brian Simpson, Quackery and Contract Law. (re: Carlill supra) | https://www.cali.org/lessonlink/841/CON65/6035/jq
 
 ***
 
