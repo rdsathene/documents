@@ -472,15 +472,59 @@ https://i.schoolido.lu/songs/4540774145218.jpg
 
 🎶 On this day 2016 the trio's 「Daisuki dattara Daijoubu!」 released ✨ Discuss→ https://schoolido.lu/songs/%E3%82%BF%E3%82%99%E3%82%A4%E3%82%B9%E3%82%AD%E3%81%9F%E3%82%99%E3%81%A3%E3%81%9F%E3%82%89%E3%82%BF%E3%82%99%E3%82%A4%E3%82%B7%E3%82%99%E3%83%A7%E3%82%A6%E3%83%95%E3%82%99%21/ #LLSIF #スクフェス #LoveLive #ラブライブ #Aqours 
 
-
-
 ## 5
 
 http://st.cdjapan.co.jp/pictures/l/05/15/LACA-15498.jpg
 
 🎶 On this day the soundtrack *Notes of School Idol Days: Curtain Call* released ✨ Get your copy 💸 http://www.cdjapan.co.jp/aff/click.cgi/PytJTGW7Lok/5590/A364348/product%2FLACA-15498 #LoveLive #LLSIF #スクフェス #μsicforever
 
+## 21
 
+https://i.schoolido.lu/songs/Pure_girls_project.jpg
+
+🎶 On this day 2013 Printemps' 「Pure Girls Project」 released ✨ Discuss→ https://schoolido.lu/songs/Pure%20girls%20project/ #LLSIF #スクフェス #LoveLive #ラブライブ #μsicforever 
+
+
+## 24
+
+https://i.schoolido.lu/songs/%E3%83%A6%E3%83%A1%E8%AA%9E%E3%82%8B%E3%82%88%E3%82%8A%E3%83%A6%E3%83%A1%E6%AD%8C%E3%81%8A%E3%81%86.jpg
+
+🎶 On this day 2016 Aqours' 「Yume Kataru yori Yume Utaou」 released ✨ Discuss→ https://schoolido.lu/songs/%E3%83%A6%E3%83%A1%E8%AA%9E%E3%82%8B%E3%82%88%E3%82%8A%E3%83%A6%E3%83%A1%E6%AD%8C%E3%81%8A%E3%81%86/ #LLSIF #スクフェス #LoveLive #ラブライブ #Aqours 
+
+
+https://i.schoolido.lu/songs/%E5%A4%8F%E8%89%B2%E3%81%88%E3%81%8B%E3%82%99%E3%81%8A%E3%81%A6%E3%82%9912Jump.jpg
+
+🎶 On this day 2011 µ's 「Natsu-iro Egao de 1, 2, Jump!」 released ✨ Discuss→ https://schoolido.lu/songs/%E5%A4%8F%E8%89%B2%E3%81%88%E3%81%8B%E3%82%99%E3%81%8A%E3%81%A6%E3%82%991%2C2%2CJump%21/ #LLSIF #スクフェス #LoveLive #ラブライブ #μsicforever 
+
+## 25
+
+https://i.schoolido.lu/songs/%E5%83%95%E3%82%89%E3%81%AELIVE_%E5%90%9B%E3%81%A8%E3%81%AELIFE.jpg
+
+🎶 On this day 2010 µ's 「Bokura no LIVE Kimi to no LIFE」 released ✨ Discuss→ https://schoolido.lu/songs/%E5%83%95%E3%82%89%E3%81%AELIVE%20%E5%90%9B%E3%81%A8%E3%81%AELIFE/ #LLSIF #スクフェス #LoveLive #ラブライブ #μsicforever 
+
+## 26
+
+http://st.cdjapan.co.jp/pictures/l/16/22/BCXA-1155.jpg
+
+🎶📽️ On this day the Blu-ray *Love Live! μ's Live Collection* released ✨ Get your copy 💸 http://www.cdjapan.co.jp/aff/click.cgi/PytJTGW7Lok/5590/A364348/product%2FBCXA-1155 #LoveLive #LLSIF #スクフェス #μsicforever
+
+## 27
+
+https://i.schoolido.lu/songs/%E3%81%8F%E3%82%8B%E3%82%8A%E3%82%93MIRACLE.jpg
+
+🎶 On this day 2014 the solo 「Kururin MIRACLE」 released ✨ Discuss→ https://schoolido.lu/songs/%E3%81%8F%E3%82%8B%E3%82%8A%E3%82%93MIRACLE/ #LLSIF #スクフェス #LoveLive #ラブライブ #μsicforever 
+
+
+http://st.cdjapan.co.jp/pictures/l/03/26/LACA-9356.jpg
+
+🎶 On this day the soundtrack *Notes of School idol days ~Glory~* released ✨ Get your copy 💸 http://www.cdjapan.co.jp/aff/click.cgi/PytJTGW7Lok/5590/A364348/product%2FLACA-9356 #LoveLive #LLSIF #スクフェス #μsicforever
+
+
+## 28
+
+https://i.imgur.com/DLoZ94d.jpg
+
+🎶 On this day 2013 the duet's 「Garasu no Hanazono」 released ✨ Discuss→ https://schoolido.lu/songs/ #LLSIF #スクフェス #LoveLive #ラブライブ #μsicforever 
 
 
 
