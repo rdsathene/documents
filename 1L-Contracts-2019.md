@@ -82,7 +82,7 @@ Optional: http://j.mp/33ofC6n | http://j.mp/2M9uoZn
 
 ### Week 5 : October 3
 
-Acceptance, CL-mirror v. UCC reasonable, mailbox rule.
+**Acceptance**, CL-mirror v. UCC reasonable, mailbox rule.
 
 Casebook
 
@@ -92,29 +92,37 @@ Casebook
 
 *Carlill v. Carbolic Smoke Ball*
 
+*Day v. Caton*
+
 *Ardente v. Horan*
 
-CALI https://www.cali.org/lesson/16932?CON61P | https://www.cali.org/lessonlink/815/CON61/6035/jq 
+*Cantu v. Central Education Agency*
 
-Optional: A.W. Brian Simpson, Quackery and Contract Law. (re: Carlill supra) | https://www.cali.org/lessonlink/841/CON65/6035/jq
+CALI https://www.cali.org/lesson/16932?CON61P | https://www.cali.org/lessonlink/815/CON61/6035/jq | https://www.cali.org/lesson/16999?CON62P | https://www.cali.org/lessonlink/814/CON62/6035/jq
+
+Optional: A.W. Brian Simpson, Quackery and Contract Law. (re: Carlill supra) | *Fujimoto v. Rio Grande Pickle Co.* | https://www.cali.org/lessonlink/841/CON65/6035/jq | http://j.mp/2Mcx0pp
 
 ***
 
 ### Week 6 : October 10
 
-subjects
+**MIDTERM EXAMINATION** 60 minutes
+
+Acceptance continued, **battle of the forms**.
 
 Casebook
 
-CALI 
+*Dorton v. Collins & Aikman*
 
-Optional: 
+CALI https://www.cali.org/lessonlink/822/CON64/6035/jq | https://www.cali.org/lesson/17120?CON64_1P | https://www.cali.org/lesson/17118?CON64_2P | https://www.cali.org/lesson/17119?CON64_3P
+
+Optional: https://www.cali.org/lesson/1045?CON64P
 
 ***
 
 ### Week 7 : October 17
 
-subjects
+**Consideration**, bargain theory, modification, PMG, illusory, debts
 
 Casebook
 
@@ -126,7 +134,7 @@ Optional:
 
 ### Week 8 : October 24
 
-subjects
+Consideration continued, **output & requirements**, **promissory estoppel**
 
 Casebook
 
@@ -138,7 +146,7 @@ Optional:
 
 ### Week 9 : October 31
 
-subjects
+Defenses to formation, **Statute of Frauds**
 
 Casebook
 
@@ -150,7 +158,7 @@ Optional:
 
 ### Week 10 : November 7
 
-subjects
+**Statute of Frauds** continued, review for final
 
 Casebook
 
@@ -164,8 +172,259 @@ Optional:
 
 ***
 
-## Winter Syllabus
+## Winter Quarter
+
+### Week 1 (11) : November 21
+
+Review fall quarter final and material, all other **defenses to formation**
+
+Casebook
+
+CALI 
+
+Optional: 
+
 
 ***
 
-## Spring Syllabus
+### Week 2 (12) : December 5
+
+**Defenses to formation** continued
+
+Casebook
+
+CALI 
+
+Optional: 
+
+***
+
+### Week 3 (13) : December 12
+
+Performance and **breach**, Parol Evidence Rule (**PER**)
+
+Casebook
+
+CALI 
+
+Optional: 
+
+
+***
+
+### Week 4 (14) :  December 19
+
+PER continued, gap fillers, implied **terms**, conditions
+
+Casebook
+
+CALI 
+
+Optional: 
+
+
+***
+
+### Week 5 (15) : January 9
+
+Conditions continued, express & implied, constructive, precedent, concurrent, subsequent
+
+Casebook
+
+CALI 
+
+Optional: 
+
+***
+
+### Week 6 (16) : January 16
+
+**MIDTERM EXAMINATION** 80 minutes
+
+Conditions continued, **excuses**, substantial performance, waiver, etc.
+
+Casebook
+
+CALI 
+
+Optional: 
+
+***
+
+### Week 7 (17) : January 23
+
+Excuses continued, **anticipatory repudiation**, satisfy, divisibility
+
+Casebook
+
+CALI 
+
+Optional: 
+
+***
+
+### Week 8 (18) : January 30
+
+**Discharge**
+
+Casebook
+
+CALI 
+
+Optional: 
+
+***
+
+### Week 9 (19) : February 6
+
+Discharge continued, novation, etc.
+
+Casebook
+
+CALI 
+
+Optional: 
+
+***
+
+### Week 10 (20) : February 13
+
+**Breach**, material, minor
+
+Casebook
+
+CALI 
+
+Optional: 
+
+***
+
+### Final Exam : February 20
+
+***
+
+## Spring Quarter
+
+### Week 1 (21) : March 5
+
+Review winter quarter final and material, breach continued, **UCC Perfect Tender Rule** 
+
+Casebook
+
+CALI 
+
+Optional: 
+
+***
+
+### Week 2 (22) : March 12
+
+subjects
+
+Casebook
+
+CALI 
+
+Optional: 
+
+***
+
+### Week 3 (23) : March 19
+
+subjects
+
+Casebook
+
+CALI 
+
+Optional: 
+
+***
+
+### Week 4 (24) : March 26
+
+subjects
+
+Casebook
+
+CALI 
+
+Optional: 
+
+***
+
+### Week 5 (25) : April 2
+
+subjects
+
+Casebook
+
+CALI 
+
+Optional: 
+
+***
+
+### Week 6 (26) : April 9
+
+subjects
+
+Casebook
+
+CALI 
+
+Optional: 
+
+***
+
+### Week 7 (27) : April 16
+
+subjects
+
+Casebook
+
+CALI 
+
+Optional: 
+
+***
+
+### Week 8 (28) : April 23
+
+subjects
+
+Casebook
+
+CALI 
+
+Optional: 
+
+***
+
+### Week 9 (29) : April 30
+
+subjects
+
+Casebook
+
+CALI 
+
+Optional: 
+
+***
+
+### Week 10 (30) : May 7
+
+subjects
+
+Casebook
+
+CALI 
+
+Optional: 
+
+***
+
+### Final Exam : May 14
+
+***
