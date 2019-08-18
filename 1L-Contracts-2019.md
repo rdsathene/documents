@@ -1,10 +1,10 @@
 # 1L Contracts 2019
 
-> “…he laughed at him for imagining the dishonesty and covetousness of his countrymen could be restrained by written laws, which were like spiders’ webs, and would catch, it is true, the weak and poor, but easily be broken by the mighty and rich” — [Plutarch](https://http://classics.mit.edu/Plutarch/solon.html) *Solon*
+> “…he laughed at him for imagining the dishonesty and covetousness of his countrymen could be restrained by written laws, which were like spiders’ webs, and would catch, it is true, the weak and poor, but easily be broken by the mighty and rich” — [Plutarch](http://classics.mit.edu/Plutarch/solon.html) *Solon*
  
-Many thanks to Alex Rodriguez of the Law Offices of Hirji and Chau, LLP for introducing PCL to CALI.org
+See the [blog for this class](https://pcl1lcontracts.classcaster.net). Many thanks to Alex Rodriguez of the Law Offices of Hirji and Chau, LLP for introducing PCL to CALI.org
 
-## Fall Syllabus
+## Fall Quarter Syllabus
 
 ### Week 1 : September 5
 
@@ -114,9 +114,11 @@ Casebook
 
 *Dorton v. Collins & Aikman*
 
+*Diamond Fruit Growers v. Krack Corp.*
+
 CALI https://www.cali.org/lessonlink/822/CON64/6035/jq | https://www.cali.org/lesson/17120?CON64_1P | https://www.cali.org/lesson/17118?CON64_2P | https://www.cali.org/lesson/17119?CON64_3P
 
-Optional: https://www.cali.org/lesson/1045?CON64P
+Optional: https://www.cali.org/lesson/1045?CON64P | http://j.mp/2Mmktjm
 
 ***
 
@@ -126,9 +128,17 @@ Optional: https://www.cali.org/lesson/1045?CON64P
 
 Casebook
 
-CALI 
+*Kim v. Son*
 
-Optional: 
+*Hamer v. Sidway*
+
+*Gottlieb v. Tropicana Hotel & Casino*
+
+*Fiege v. Boehm*
+
+CALI https://www.cali.org/lessonlink/842/CON67/6035/jq | https://www.cali.org/lessonlink/1120/CON71/6035/jq | https://www.cali.org/lessonlink/1276/CON72/6035/jq | https://www.cali.org/lessonlink/418/CON22/6035/jq
+
+Optional: *Kirksey v. Kirksey* | *Pennsy Supply, Inc. v. American Ash Recycling Corp.* | http://j.mp/2THM8Ms
 
 ***
 
@@ -138,9 +148,17 @@ Consideration continued, **output & requirements**, **promissory estoppel**
 
 Casebook
 
-CALI 
+*BRC Rubber & Plastic, Inc. v. Continental Carbon Company*
 
-Optional: 
+*Wiseco, Inc. v. Johnson Controls, Inc.*
+
+*Feinberg v. Pfeiffer Co*
+
+*Conrad v. Fields*
+
+CALI https://www.cali.org/lessonlink/742/CON52/6035/jq | https://www.cali.org/lessonlink/417/CON21/6035/jq | https://www.cali.org/lessonlink/7607/CON73/6035/jq
+
+Optional: *Summits 7, Inc. v. Kelly* | *Salsbury v. Northwestern Bell Telephone Co.*
 
 ***
 
@@ -150,9 +168,15 @@ Defenses to formation, **Statute of Frauds**
 
 Casebook
 
-CALI 
+*Ehrlich v. Diggs*
 
-Optional: 
+*Crabtree v. Elizabeth Arden Sales Corp.*
+
+*Cohn v. Fisher*
+
+CALI https://www.cali.org/lessonlink/407/CON11/6035/jq | https://www.cali.org/lesson/16971?CON11_1P
+
+Optional: *C.R.Klewin, Inc. v. Flagship Properties* | "J.M. Perillo, The Statute of Frauds in the Light of the Functions and Dysfunctions of Form" | *McIntosh v. Murphy* | *Azevedo v. Minister*
 
 ***
 
@@ -162,9 +186,17 @@ Optional:
 
 Casebook
 
-CALI 
+*Yarbro v. Neil B. McGinnis Equipment Co.*
 
-Optional: 
+*Lawrence v. Anderson*
+
+*Dienst v. Dienst*
+
+*Shaughnessy v. Eidsmo*
+
+CALI https://www.cali.org/lesson/16970?CON11_2P
+
+Optional: http://j.mp/2KCtQt9
 
 ***
 
@@ -172,7 +204,7 @@ Optional:
 
 ***
 
-## Winter Quarter
+## Winter Quarter Syllabus
 
 ### Week 1 (11) : November 21
 
@@ -214,7 +246,9 @@ Optional:
 
 ### Week 4 (14) :  December 19
 
-PER continued, gap fillers, implied **terms**, conditions
+**MIDTERM EXAMINATION** 80 minutes
+
+PER continued, gap fillers, implied **terms**, conditions.
 
 Casebook
 
@@ -227,7 +261,7 @@ Optional:
 
 ### Week 5 (15) : January 9
 
-Conditions continued, express & implied, constructive, precedent, concurrent, subsequent
+Review material prior to break, **conditions** continued, express & implied, constructive, precedent, concurrent, subsequent.
 
 Casebook
 
@@ -238,8 +272,6 @@ Optional:
 ***
 
 ### Week 6 (16) : January 16
-
-**MIDTERM EXAMINATION** 80 minutes
 
 Conditions continued, **excuses**, substantial performance, waiver, etc.
 
@@ -253,7 +285,7 @@ Optional:
 
 ### Week 7 (17) : January 23
 
-Excuses continued, **anticipatory repudiation**, satisfy, divisibility
+Excuses continued, **anticipatory repudiation**, satisfy, divisibility.
 
 Casebook
 
@@ -265,7 +297,7 @@ Optional:
 
 ### Week 8 (18) : January 30
 
-**Discharge**
+**Discharge**, impossibility, impracticability, frustration of purpose, etc.
 
 Casebook
 
@@ -277,7 +309,7 @@ Optional:
 
 ### Week 9 (19) : February 6
 
-Discharge continued, novation, etc.
+Discharge continued, **novation**, accord and satisfaction, etc.
 
 Casebook
 
@@ -303,7 +335,7 @@ Optional:
 
 ***
 
-## Spring Quarter
+## Spring Quarter Syllabus
 
 ### Week 1 (21) : March 5
 
@@ -319,7 +351,7 @@ Optional:
 
 ### Week 2 (22) : March 12
 
-subjects
+Breach continued, risk of loss, warranty.
 
 Casebook
 
@@ -331,7 +363,7 @@ Optional:
 
 ### Week 3 (23) : March 19
 
-subjects
+**Remedies**, expectation (CFCU), consequential, incidental.
 
 Casebook
 
@@ -343,7 +375,7 @@ Optional:
 
 ### Week 4 (24) : March 26
 
-subjects
+Remedies continued, reliance, liquidated, **equitable**: specific performance, recision, restitution.
 
 Casebook
 
@@ -355,7 +387,7 @@ Optional:
 
 ### Week 5 (25) : April 2
 
-subjects
+**UCC remedies**, perfect tender, introduction to third party.
 
 Casebook
 
@@ -367,7 +399,9 @@ Optional:
 
 ### Week 6 (26) : April 9
 
-subjects
+**MIDTERM EXAMINATION** 80 minutes
+
+Third party beneficiaries.
 
 Casebook
 
@@ -379,7 +413,7 @@ Optional:
 
 ### Week 7 (27) : April 16
 
-subjects
+**Third party beneficiaries** continued, assignment and delegation.
 
 Casebook
 
@@ -391,7 +425,7 @@ Optional:
 
 ### Week 8 (28) : April 23
 
-subjects
+**Assignment and delegation** continued.
 
 Casebook
 
@@ -403,7 +437,7 @@ Optional:
 
 ### Week 9 (29) : April 30
 
-subjects
+Putting it all together, review.
 
 Casebook
 
@@ -415,7 +449,7 @@ Optional:
 
 ### Week 10 (30) : May 7
 
-subjects
+Review for final and FYLSX.
 
 Casebook
 
@@ -425,6 +459,6 @@ Optional:
 
 ***
 
-### Final Exam : May 14
+### Final Examination : May 14
 
 ***
