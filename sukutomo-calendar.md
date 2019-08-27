@@ -2,7 +2,7 @@
 
 *I realized I was looking up the same information, and crafting the same tweets from scratch year after year. I'm creating this both for myself, and whomever my successor will be. The links to images for the tweets appear above the tweets.* ***If using the HackMD version instead of GitHub, be sure to use the md edit mode to copy, so that you avoid pasting unencoded characters into TweetDeck.***
 
-
+Start date 2019-April, so anything newer than that needs to be added. Resources: [LL!](https://en.wikipedia.org/wiki/Love_Live!) | [LLS!](https://en.wikipedia.org/wiki/Love_Live!_Sunshine!!)
 
 incorporate birthdays [see more here](https://decaf.kouhi.me/lovelive/index.php?title=Category:Other_Characters)  
 Dia Kurosawa- January 1st  
@@ -527,10 +527,29 @@ https://i.imgur.com/DLoZ94d.jpg
 🎶 On this day 2013 the duet's 「Garasu no Hanazono」 released ✨ Discuss→ https://schoolido.lu/songs/ #LLSIF #スクフェス #LoveLive #ラブライブ #μsicforever 
 
 
-
-
-
 # September
+
+## 5
+
+https://i.schoolido.lu/songs/Wonderful_Rush.jpg
+
+🎶 On this day 2012 μ's 「Wonderful Rush」 released ✨ Discuss→ https://schoolido.lu/songs/Wonderful%20Rush/ #LLSIF #スクフェス #LoveLive #ラブライブ #μsicforever 
+
+## 24
+
+https://i.schoolido.lu/songs/Storm_in_Lover.jpg
+
+🎶 On this day 2014 the duet's 「Storm in Lover」 released ✨ Discuss→ https://schoolido.lu/songs/Storm%20in%20Lover/ #LLSIF #スクフェス #LoveLive #ラブライブ #μsicforever 
+
+
+## 25
+
+https://i.schoolido.lu/songs/LONELIEST_BABY.jpg
+
+🎶 On this day 2013 μ's 「LONELIEST BABY」 released ✨ Discuss→ https://schoolido.lu/songs/LONELIEST%20BABY/ #LLSIF #スクフェス #LoveLive #ラブライブ #μsicforever 
+
+
+
 # October
 # November
 # December
