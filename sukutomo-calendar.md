@@ -535,6 +535,18 @@ https://i.schoolido.lu/songs/Wonderful_Rush.jpg
 
 🎶 On this day 2012 μ's 「Wonderful Rush」 released ✨ Discuss→ https://schoolido.lu/songs/Wonderful%20Rush/ #LLSIF #スクフェス #LoveLive #ラブライブ #μsicforever 
 
+## 14
+
+https://i.schoolido.lu/songs/QOHApa44svi7wPFDMaLtIF95f7HPue9A.png
+
+🎶 On this day 2016 the sextet's 「Yume de Yozora wo Terashitai」 released ✨ Discuss→ https://schoolido.lu/songs/%E5%A4%A2%E3%81%A6%E3%82%99%E5%A4%9C%E7%A9%BA%E3%82%92%E7%85%A7%E3%82%89%E3%81%97%E3%81%9F%E3%81%84/ #LLSIF #スクフェス #LoveLive #ラブライブ #Aqours 
+
+
+https://i.schoolido.lu/songs/HozwabETW8RyOMhuEMXS7nU4lyfPGZ6A.png
+
+🎶 On this day 2016 Aqours' 「Mijuku DREAMER」 released ✨ Discuss→ https://schoolido.lu/songs/%E6%9C%AA%E7%86%9FDREAMER/ #LLSIF #スクフェス #LoveLive #ラブライブ #Aqours 
+
+
 ## 24
 
 https://i.schoolido.lu/songs/Storm_in_Lover.jpg
@@ -547,6 +559,27 @@ https://i.schoolido.lu/songs/Storm_in_Lover.jpg
 https://i.schoolido.lu/songs/LONELIEST_BABY.jpg
 
 🎶 On this day 2013 μ's 「LONELIEST BABY」 released ✨ Discuss→ https://schoolido.lu/songs/LONELIEST%20BABY/ #LLSIF #スクフェス #LoveLive #ラブライブ #μsicforever 
+
+## 27
+
+https://i.schoolido.lu/songs/Pops_heart%E3%81%A6%E3%82%99%E8%B8%8A%E3%82%8B%E3%82%93%E3%81%9F%E3%82%99%E3%82%82%E3%82%93.jpg
+
+🎶 On this day 2016 Aqours' 「Pops heart de Odoru damon!」 released ✨ Discuss→ https://schoolido.lu/songs/Pops%20heart%E3%81%A6%E3%82%99%E8%B8%8A%E3%82%8B%E3%82%93%E3%81%9F%E3%82%99%E3%82%82%E3%82%93%21/ #LLSIF #スクフェス #LoveLive #ラブライブ #Aqours 
+
+## 29
+
+http://st.cdjapan.co.jp/pictures/l/16/48/LABX-8255.jpg
+
+🎶 On this day 2018 Day One 「Aqours 2nd Love Live! Happy Party Train Tour (Saitama)」 🍊⛵🍭🐬💮🌼🎹😈✨ Memorialized→ http://www.cdjapan.co.jp/aff/click.cgi/PytJTGW7Lok/5590/A364348/product%2FLABX-8255 #LLSIF #スクフェス #LoveLive #ラブライブ #Aqours 
+
+
+## 30
+
+http://st.cdjapan.co.jp/pictures/l/00/01/LABX-8257.jpg
+
+🎶 On this day 2018 Day Two 「Aqours 2nd Love Live! Happy Party Train Tour (Saitama)」 🍊⛵🍭🐬💮🌼🎹😈✨ Memorialized→ http://www.cdjapan.co.jp/aff/click.cgi/PytJTGW7Lok/5590/A364348/product%2FLABX-8257 #LLSIF #スクフェス #LoveLive #ラブライブ #Aqours 
+
+
 
 
 
