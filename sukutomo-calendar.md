@@ -580,10 +580,23 @@ http://st.cdjapan.co.jp/pictures/l/00/01/LABX-8257.jpg
 🎶 On this day 2018 Day Two 「Aqours 2nd Love Live! Happy Party Train Tour (Saitama)」 🍊⛵🍭🐬💮🌼🎹😈✨ Memorialized→ http://www.cdjapan.co.jp/aff/click.cgi/PytJTGW7Lok/5590/A364348/product%2FLABX-8257 #LLSIF #スクフェス #LoveLive #ラブライブ #Aqours 
 
 
-
-
-
 # October
+
+## 1
+
+https://i.schoolido.lu/songs/shangrilashower.png
+
+🎶 On this day 2014 μ's 「Shangri-La Shower」 released ✨ Discuss→ https://schoolido.lu/songs/Shangri-La%20Shower/ #LLSIF #スクフェス #LoveLive #ラブライブ #μsicforever 
+
+
+## 7
+
+https://i.schoolido.lu/songs/%E5%90%9B%E3%81%AE%E3%81%93%E3%81%93%E3%82%8D%E3%81%AF%E8%BC%9D%E3%81%84%E3%81%A6%E3%82%8B%E3%81%8B%E3%81%84.jpg
+
+🎶 On this day 2015 Aqours' 「Kimi no Kokoro wa Kagayaiteru kai?」 released ✨ Discuss→ https://schoolido.lu/songs/%E5%90%9B%E3%81%AE%E3%81%93%E3%81%93%E3%82%8D%E3%81%AF%E8%BC%9D%E3%81%84%E3%81%A6%E3%82%8B%E3%81%8B%E3%81%84%3F/ #LLSIF #スクフェス #LoveLive #ラブライブ #Aqours 
+
+
+
 # November
 # December
 
