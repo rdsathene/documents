@@ -596,6 +596,42 @@ https://i.schoolido.lu/songs/%E5%90%9B%E3%81%AE%E3%81%93%E3%81%93%E3%82%8D%E3%81
 🎶 On this day 2015 Aqours' 「Kimi no Kokoro wa Kagayaiteru kai?」 released ✨ Discuss→ https://schoolido.lu/songs/%E5%90%9B%E3%81%AE%E3%81%93%E3%81%93%E3%82%8D%E3%81%AF%E8%BC%9D%E3%81%84%E3%81%A6%E3%82%8B%E3%81%8B%E3%81%84%3F/ #LLSIF #スクフェス #LoveLive #ラブライブ #Aqours 
 
 
+## 17
+
+http://st.cdjapan.co.jp/pictures/l/04/42/LACA-15244.jpg
+
+🎶 On this day 2017 「Love Live Radio Kagai Katsudō: Nicorinpana Theme Song 」 💸 Backorder→ http://www.cdjapan.co.jp/aff/click.cgi/PytJTGW7Lok/5590/A364348/product%2FLACA-15244 #LLSIF #スクフェス #LoveLive #ラブライブ #μsicforever 
+
+
+## 25
+
+https://i.schoolido.lu/songs/wkKcSGOEX4WiwL67TdlVhwWoAiBhB7ZR.jpg
+
+🎶 On this day 2017 Aqours' 「Mirai no Bokura wa Shitteru yo」 released ✨ Discuss→ https://schoolido.lu/songs/%E6%9C%AA%E6%9D%A5%E3%81%AE%E5%83%95%E3%82%89%E3%81%AF%E7%9F%A5%E3%81%A3%E3%81%A6%E3%82%8B%E3%82%88/ #LLSIF #スクフェス #LoveLive #ラブライブ #Aqours 
+
+
+## 26
+
+https://i.schoolido.lu/songs/%E7%A9%BA%E3%82%82%E5%BF%83%E3%82%82%E6%99%B4%E3%82%8C%E3%82%8B%E3%81%8B%E3%82%89.jpg
+
+🎶 On this day 2016 the trio's 「Sora mo Kokoro mo Hareru kara」 released ✨ Discuss→ https://schoolido.lu/songs/%E7%A9%BA%E3%82%82%E5%BF%83%E3%82%82%E6%99%B4%E3%82%8C%E3%82%8B%E3%81%8B%E3%82%89/ #LLSIF #スクフェス #LoveLive #ラブライブ #Aqours 
+
+
+## 28
+
+https://i.schoolido.lu/songs/HEART_to_HEART.jpg
+
+🎶 On this day 2015 μ's 「HEART to HEART!」 released ✨ Discuss→ https://schoolido.lu/songs/HEART%20to%20HEART%21/ #LLSIF #スクフェス #LoveLive #ラブライブ #μsicforever 
+
+
+## 29
+
+https://i.schoolido.lu/songs/%E3%82%82%E3%81%97%E3%82%82%E3%81%8B%E3%82%89%E3%81%8D%E3%81%A3%E3%81%A8.jpg
+
+🎶 On this day 2014 the solo 「Moshimo kara Kitto」 released ✨ Discuss→ https://schoolido.lu/songs/%E3%82%82%E3%81%97%E3%82%82%E3%81%8B%E3%82%89%E3%81%8D%E3%81%A3%E3%81%A8/ #LLSIF #スクフェス #LoveLive #ラブライブ #μsicforever 
+
+
+
 
 # November
 # December
