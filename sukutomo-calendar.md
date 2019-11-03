@@ -630,10 +630,34 @@ https://i.schoolido.lu/songs/%E3%82%82%E3%81%97%E3%82%82%E3%81%8B%E3%82%89%E3%81
 
 🎶 On this day 2014 the solo 「Moshimo kara Kitto」 released ✨ Discuss→ https://schoolido.lu/songs/%E3%82%82%E3%81%97%E3%82%82%E3%81%8B%E3%82%89%E3%81%8D%E3%81%A3%E3%81%A8/ #LLSIF #スクフェス #LoveLive #ラブライブ #μsicforever 
 
-
-
-
 # November
+
+## 9
+
+https://i.schoolido.lu/songs/xZzk2khbdEpqOfvMHyRz3s7KRnqUjTxs.png
+
+🎶 On this day 2016 the octet's 「Omoi yo Hitotsu ni Nare」 released ✨ Discuss→ https://schoolido.lu/songs/%E6%83%B3%E3%81%84%E3%82%88%E3%81%B2%E3%81%A8%E3%81%A4%E3%81%AB%E3%81%AA%E3%82%8C/ #LLSIF #スクフェス #LoveLive #ラブライブ #Aqours 
+
+https://i.schoolido.lu/songs/17w5SCifX4nLu9g003S7GVqVRCRG1gu7.png
+
+🎶 On this day 2016 Aqours' 「Mirai Ticket」 released ✨ Discuss→ https://schoolido.lu/songs/MIRAI%20TICKET/ #LLSIF #スクフェス #LoveLive #ラブライブ #Aqours 
+
+## 12
+
+https://i.schoolido.lu/songs/%E6%B0%B8%E9%81%A0%E3%83%95%E3%83%AC%E3%83%B3%E3%82%B9%E3%82%99.jpg
+
+🎶 On this day 2014 Printemps' 「Eien Friends」 released ✨ Discuss→ https://schoolido.lu/songs/%E6%B0%B8%E9%81%A0%E3%83%95%E3%83%AC%E3%83%B3%E3%82%B9%E3%82%99/ #LLSIF #スクフェス #LoveLive #ラブライブ #μsicforever 
+
+
+## 15
+
+
+
+
+
+
+
+
 # December
 
 
