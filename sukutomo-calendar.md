@@ -1,3 +1,7 @@
+---
+tags: Sukutomo, Love Live!
+---
+
 # Sukutomo Calendar
 
 *I realized I was looking up the same information, and crafting the same tweets from scratch year after year. I'm creating this both for myself, and whomever my successor will be. The links to images for the tweets appear above the tweets.* ***If using the HackMD version instead of GitHub, be sure to use the md edit mode to copy, so that you avoid pasting unencoded characters into TweetDeck.***
@@ -39,6 +43,14 @@ December 12 Kazuno Leah
 
 # January
 # February
+
+# 19
+
+http://st.cdjapan.co.jp/pictures/l/16/30/LABX-8021.jpg
+
+🎶 On this day 2012 「μ’s First LoveLive!」🌟 Memorialized→ http://www.cdjapan.co.jp/aff/click.cgi/PytJTGW7Lok/5590/A364348/product%2FLABX-8021 #LLSIF #スクフェス #LoveLive #ラブライブ #μsicforever
+
+
 # March
 
 # April
@@ -651,8 +663,56 @@ https://i.schoolido.lu/songs/%E6%B0%B8%E9%81%A0%E3%83%95%E3%83%AC%E3%83%B3%E3%82
 
 ## 15
 
+https://i.schoolido.lu/songs/xYJoajf8UK8EMkdxDOp6L9WGn1DjChCy.jpg
+
+🎶 On this day 2017 Aqours' 「Yuuki wa Doko ni? Kimi no Mune ni!」 released ✨ Discuss→ https://schoolido.lu/songs/%E5%8B%87%E6%B0%97%E3%81%AF%E3%81%A8%E3%82%99%E3%81%93%E3%81%AB%EF%BC%9F%E5%90%9B%E3%81%AE%E8%83%B8%E3%81%AB%EF%BC%81/ #LLSIF #スクフェス #LoveLive #ラブライブ #Aqours 
 
 
+# 17
+
+http://st.cdjapan.co.jp/pictures/l/16/47/LABX-8350.jpg
+
+🎶 On this day 2018 Day One 「Aqours 4th LoveLive! - Sailing To The Sunshine」 🍊⛵🍭🐬💮🌼🎹😈✨ Memorialized→ http://www.cdjapan.co.jp/aff/click.cgi/PytJTGW7Lok/5590/A364348/product%2FLABX-8350 #LLSIF #スクフェス #LoveLive #ラブライブ #Aqours 
+
+
+# 18
+
+http://st.cdjapan.co.jp/pictures/l/00/00/LABX-8352.jpg
+
+🎶 On this day 2018 Day Two 「Aqours 4th LoveLive! - Sailing To The Sunshine」 🍊⛵🍭🐬💮🌼🎹😈✨ Memorialized→ http://www.cdjapan.co.jp/aff/click.cgi/PytJTGW7Lok/5590/A364348/product%2FLABX-8352 #LLSIF #スクフェス #LoveLive #ラブライブ #Aqours 
+
+# 21
+
+https://i.schoolido.lu/songs/%E5%A5%BD%E3%81%8D%E3%81%A6%E3%82%99%E3%81%99%E3%81%8B%E3%82%99%E5%A5%BD%E3%81%8D%E3%81%A6%E3%82%99%E3%81%99%E3%81%8B.jpg
+
+🎶 On this day 2014 the duet's 「Suki Desu ga Suki Desu ka?」 released ✨ Discuss→ https://schoolido.lu/songs/%E5%A5%BD%E3%81%8D%E3%81%A6%E3%82%99%E3%81%99%E3%81%8B%E3%82%99%E5%A5%BD%E3%81%8D%E3%81%A6%E3%82%99%E3%81%99%E3%81%8B%3F/ #LLSIF #スクフェス #LoveLive #ラブライブ #μsicforever 
+
+
+# 23
+
+https://i.imgur.com/L8F1DBL.jpg
+
+🎶 On this day 2011 Sonoda Umi's Solo album *Umiiro Shoujo ni Miserarete* released ✨ Included song 「Watashitachi wa Mirai no Hana」 ➡️ http://schoolido.lu/songs/%E7%A7%81%E3%81%9F%E3%81%A1%E3%81%AF%E6%9C%AA%E6%9D%A5%E3%81%AE%E8%8A%B1/ Get a copy→ http://www.cdjapan.co.jp/aff/click.cgi/PytJTGW7Lok/5590/A364348/product%2FLACA-15168 #LoveLive #LLSIF #スクフェス #μsicforever
+
+# 25
+
+https://i.schoolido.lu/songs/WAO-WAO_Powerful_day.jpg
+
+🎶 On this day 2015 Printemps' 「Wao-Wao Powerful Day!」 released ✨ Discuss→ https://schoolido.lu/songs/WAO-WAO%20Powerful%20day%21/ #LLSIF #スクフェス #LoveLive #ラブライブ #μsicforever 
+
+
+# 26
+
+https://i.schoolido.lu/songs/%E7%A7%8B%E3%81%AE%E3%81%82%E3%81%AA%E3%81%9F%E3%81%AE%E7%A9%BA%E9%81%A0%E3%81%8F.jpg
+
+🎶 On this day 2014 Lily White's 「Aki no Anata no Sora Tooku」 released ✨ Discuss→ https://schoolido.lu/songs/%E7%A7%8B%E3%81%AE%E3%81%82%E3%81%AA%E3%81%9F%E3%81%AE%E7%A9%BA%E9%81%A0%E3%81%8F/ #LLSIF #スクフェス #LoveLive #ラブライブ #μsicforever 
+
+
+# 27
+
+https://i.schoolido.lu/songs/TDtmsAsQ9Izib0zopojTPKUM9Z4SahLW.jpg
+
+🎶 On this day 2013 μ's 「Music S.T.A.R.T!!」 released ✨ Discuss→ https://schoolido.lu/songs/Music%20S.T.A.R.T%21%21/ #LLSIF #スクフェス #LoveLive #ラブライブ #μsicforever 
 
 
 
