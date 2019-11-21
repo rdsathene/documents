@@ -690,15 +690,33 @@ https://i.schoolido.lu/songs/%E5%A5%BD%E3%81%8D%E3%81%A6%E3%82%99%E3%81%99%E3%81
 
 # 23
 
+https://i.imgur.com/rjnpGf8.png
+
+🎶 On this day 2016 Aqours' 「Jingle Bells ga Tomaranai」 released ✨ Discuss→ https://schoolido.lu/songs/%E3%82%B7%E3%82%99%E3%83%B3%E3%82%AF%E3%82%99%E3%83%AB%E3%83%98%E3%82%99%E3%83%AB%E3%81%8B%E3%82%99%E3%81%A8%E3%81%BE%E3%82%89%E3%81%AA%E3%81%84/ #LLSIF #スクフェス #LoveLive #ラブライブ #Aqours 
+
+
 https://i.imgur.com/L8F1DBL.jpg
 
 🎶 On this day 2011 Sonoda Umi's Solo album *Umiiro Shoujo ni Miserarete* released ✨ Included song 「Watashitachi wa Mirai no Hana」 ➡️ http://schoolido.lu/songs/%E7%A7%81%E3%81%9F%E3%81%A1%E3%81%AF%E6%9C%AA%E6%9D%A5%E3%81%AE%E8%8A%B1/ Get a copy→ http://www.cdjapan.co.jp/aff/click.cgi/PytJTGW7Lok/5590/A364348/product%2FLACA-15168 #LoveLive #LLSIF #スクフェス #μsicforever
+
+# 24
+
+https://i.schoolido.lu/songs/yvWOi2EpxZOQbY9xUt1uoX8D8RMrJs6f.jpg
+
+🎶 On this day 2018 the second year trio's 「Marine Border Parasol」 released ✨ Discuss→ https://schoolido.lu/songs/Marine%20Border%20Parasol/ #LLSIF #スクフェス #LoveLive #ラブライブ #Aqours 
+
 
 # 25
 
 https://i.schoolido.lu/songs/WAO-WAO_Powerful_day.jpg
 
 🎶 On this day 2015 Printemps' 「Wao-Wao Powerful Day!」 released ✨ Discuss→ https://schoolido.lu/songs/WAO-WAO%20Powerful%20day%21/ #LLSIF #スクフェス #LoveLive #ラブライブ #μsicforever 
+
+https://i.schoolido.lu/songs/Waku-Waku-Week.jpg
+
+🎶 On this day 2016 the first year trio's 「Waku-Waku-Week!」 released ✨ Discuss→ https://schoolido.lu/songs/Waku-Waku-Week%21/ #LLSIF #スクフェス #LoveLive #ラブライブ #Aqours 
+
+
 
 
 # 26
@@ -714,6 +732,22 @@ https://i.schoolido.lu/songs/TDtmsAsQ9Izib0zopojTPKUM9Z4SahLW.jpg
 
 🎶 On this day 2013 μ's 「Music S.T.A.R.T!!」 released ✨ Discuss→ https://schoolido.lu/songs/Music%20S.T.A.R.T%21%21/ #LLSIF #スクフェス #LoveLive #ラブライブ #μsicforever 
 
+
+# 29
+
+https://i.schoolido.lu/songs/A6z8XM4gR2uD04GoHGIcX9izkAzDeEx0.jpg
+
+🎶 On this day 2017 Aqours' 「MY Mai☆TONIGHT」 released ✨ Discuss→ https://schoolido.lu/songs/MY%E8%88%9E%E2%98%86TONIGHT/ #LLSIF #スクフェス #LoveLive #ラブライブ #Aqours 
+
+https://i.schoolido.lu/songs/LGmrgDodGy2mM8roZDN9VD79xJr1orDY.png
+
+🎶 On this day 2017 Aqours' 「Miracle Wave」 released ✨ Discuss→ https://schoolido.lu/songs/MIRACLE%20WAVE/ #LLSIF #スクフェス #LoveLive #ラブライブ #Aqours 
+
+# 30
+
+http://st.cdjapan.co.jp/pictures/l/03/33/LACA-9475.jpg?v=1
+
+🎶 On this day 2016 the Original Soundtrack: 「Sailing to the Sunshine」 released 🍊⛵🍭🐬💮🌼🎹😈✨ Get your copy→ http://www.cdjapan.co.jp/aff/click.cgi/PytJTGW7Lok/5590/A364348/product%2FLACA-9475 #LLSIF #スクフェス #LoveLive #ラブライブ #Aqours 
 
 
 
