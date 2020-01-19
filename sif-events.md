@@ -6,50 +6,50 @@ tags: Sukutomo, Love Live!
 ## Japan
 
 
-https://www.timeanddate.com/worldclock/converter.html?iso=20200115T060000&p1=137&p2=1440&p3=538
+https://www.timeanddate.com/worldclock/converter.html?iso=20200131T060000&p1=137&p2=1440&p3=538
 
-Friendly Match Round 14
-https://schoolido.lu/events/Friendly%20Match%20Round%2014/
+Medley Festival Round 23 
+https://schoolido.lu/events/Medley%20Festival%20Round%2023/
 
-01/04 11:00
-🇯🇵JP🌟 Friendly Match Round 14 ⭐🎍⭐ starts in twelve hours⏰→ https://schoolido.lu/events/Friendly%20Match%20Round%2014/ #LoveLive #スクフェス #ラブライブ #μsicforever 
-#Aqours 
+01/19 11:00
+🇯🇵JP🌟 Medley Festival Round 23  ❄️⛄❄️ starts in twelve hours⏰→ https://schoolido.lu/events/Medley%20Festival%20Round%2023/ #LoveLive #スクフェス #ラブライブ #Aqours 
+#μsicforever 
 
-01/04 17:00
-🇯🇵JP🌟 Maintenance begins in five hours. Friendly Match Round 14  ⭐🎍⭐ starts in six hours⏰→ https://schoolido.lu/events/Friendly%20Match%20Round%2014/ #LoveLive #スクフェス #ラブライブ #μsicforever 
+01/19 17:00
+🇯🇵JP🌟 Maintenance begins in five hours. Medley Festival Round 23 ❄️⛄❄️ starts in six hours⏰→ https://schoolido.lu/events/Medley%20Festival%20Round%2023/ #LoveLive #スクフェス #ラブライブ #Aqours 
 
-01/04 21:00
-🇯🇵JP🌟 Maintenance begins in an hour. Friendly Match Round 14  ⭐🎍⭐ starts in two hours⏰→ https://schoolido.lu/events/Friendly%20Match%20Round%2014/ #LLSIF #LoveLive #スクフェス #ラブライブ #μsicforever 
+01/19 21:00
+🇯🇵JP🌟 Maintenance begins in an hour. Medley Festival Round 23 ❄️⛄❄️ starts in two hours⏰→ Medley%20Festival%20Round%2023/ #LoveLive #スクフェス #ラブライブ #Aqours
 
-01/04 22:00
-🇯🇵JP🌟 Maintenance begins. Friendly Match Round 14  ⭐🎍⭐ starts in an hour⏰→ https://schoolido.lu/events/Friendly%20Match%20Round%2014/ #LLSIF #LoveLive #スクフェス #ラブライブ #μsicforever 
+01/19 22:00
+🇯🇵JP🌟 Maintenance begins. Medley Festival Round 23 ❄️⛄❄️ starts in an hour⏰→ Medley%20Festival%20Round%2023/ #LoveLive #スクフェス #ラブライブ #Aqours
 
-01/04 23:00
-🇯🇵JP🌟 Friendly Match Round 14  ⭐🎍⭐ begins! Will you SR rush? Countdown⏰→ https://schoolido.lu/events/Friendly%20Match%20Round%2014/ #LLSIF #LoveLive #スクフェス #ラブライブ #μsicforever 
+01/19 23:00
+🇯🇵JP🌟 Medley Festival Round 23 ❄️⛄❄️ begins! Will you SR rush? Countdown⏰→ Medley%20Festival%20Round%2023/ #LoveLive #スクフェス #ラブライブ #Aqours
 
-01/09 22:00
-🇯🇵JP🌟 Friendly Match Round 14  ⭐🎍⭐ roughly halfway through. How's the event going?→ https://schoolido.lu/events/Friendly%20Match%20Round%2014/ #LLSIF #LoveLive #スクフェス #ラブライブ #μsicforever 
+01/24 22:00
+🇯🇵JP🌟 Medley Festival Round 23 ❄️⛄❄️ roughly halfway through. How's the event going?→ Medley%20Festival%20Round%2023/ #LoveLive #スクフェス #ラブライブ #Aqours
 
-01/12 22:00
-🇯🇵JP🌟 48 hours remaining in Friendly Match Round 14  ⭐🎍⭐. Get those Rin/Maki SRs. ⏰→ https://schoolido.lu/events/Friendly%20Match%20Round%2014/ #LLSIF #LoveLive #スクフェス #ラブライブ #μsicforever 
+01/28 22:00
+🇯🇵JP🌟 48 hours remaining in Medley Festival Round 23 ❄️⛄❄️. Get those Rin/Maki SRs. ⏰→ Medley%20Festival%20Round%2023/ #LoveLive #スクフェス #ラブライブ #Aqours
 
-01/13 22:00
-🇯🇵JP🌟 24 hours remaining in Friendly Match Round 14  ⭐🎍⭐. Get those Rin/Maki SRs. ⏰→ https://schoolido.lu/events/Friendly%20Match%20Round%2014/ #LLSIF #LoveLive #スクフェス #ラブライブ #μsicforever 
+01/29 22:00
+🇯🇵JP🌟 24 hours remaining in Medley Festival Round 23 ❄️⛄❄️. Get those Rin/Maki SRs. ⏰→ Medley%20Festival%20Round%2023/ #LoveLive #スクフェス #ラブライブ #Aqours
 
-01/14 16:00
-🇯🇵JP🌟 6 hours remaining in Friendly Match Round 14  ⭐🎍⭐. Get those Rin/Maki SRs. ⏰→ https://schoolido.lu/events/Friendly%20Match%20Round%2014/ #LLSIF #LoveLive #スクフェス #ラブライブ #μsicforever 
+01/30 16:00
+🇯🇵JP🌟 6 hours remaining in Medley Festival Round 23 ❄️⛄❄️. Get those Rin/Maki SRs. ⏰→ Medley%20Festival%20Round%2023/ #LoveLive #スクフェス #ラブライブ #Aqours
 
-01/14 21:00
-🇯🇵JP🌟 1 hour remains in Friendly Match Round 14  ⭐🎍⭐. Last chance for Rin/Maki SRs. ⏰→ https://schoolido.lu/events/Friendly%20Match%20Round%2014/ #LLSIF #LoveLive #スクフェス #ラブライブ #μsicforever 
+01/30 21:00
+🇯🇵JP🌟 1 hour remains in Medley Festival Round 23 ❄️⛄❄️. Last chance for Rin/Maki SRs. ⏰→ Medley%20Festival%20Round%2023/ #LoveLive #スクフェス #ラブライブ #Aqours
 
-01/14 22:00
-🇯🇵JP🌟 Friendly Match Round 14  ⭐🎍⭐ complete. Maintenance begins. Discuss the event→ https://schoolido.lu/events/Friendly%20Match%20Round%2014/ #LLSIF #LoveLive #スクフェス #ラブライブ #μsicforever 
+01/30 22:00
+🇯🇵JP🌟 Medley Festival Round 23 ❄️⛄❄️ complete. Maintenance begins. Discuss the event→ Medley%20Festival%20Round%2023/ #LoveLive #スクフェス #ラブライブ #Aqours
 
-01/14 23:00
-🇯🇵JP🌟 Maintenance complete. Enter your Friendly Match Round 14 🥇🥈🥉 ranking here→ https://schoolido.lu/events/Friendly%20Match%20Round%2014/ #LLSIF #LoveLive #スクフェス #ラブライブ #μsicforever 
+01/30 23:00
+🇯🇵JP🌟 Maintenance complete. Enter your Medley Festival Round 23  🥇🥈🥉 ranking here→ Medley%20Festival%20Round%2023/ #LoveLive #スクフェス #ラブライブ #Aqours
 
 A couple days later
-🇯🇵JP 🌟 Don't forget to enter your Friendly Match Round 14 🥇🥈🥉 event ranking here→ https://schoolido.lu/events/Friendly%20Match%20Round%2014/ #LLSIF #LoveLive #スクフェス #ラブライブ #μsicforever 
+🇯🇵JP 🌟 Don't forget to enter your Medley Festival Round 23  🥇🥈🥉 event ranking here→ Medley%20Festival%20Round%2023/ #LoveLive #スクフェス #ラブライブ #Aqours
 
 ***
 
