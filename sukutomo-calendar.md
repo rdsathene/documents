@@ -126,6 +126,40 @@ https://st.cdjapan.co.jp/pictures/l/16/31/LABX-8110.jpg
 
 🎶 On this day 2015 day two 「Go-Go→Love Live! 2015 - Dream Sensation!」🌟 Memorialized→ http://www.cdjapan.co.jp/aff/click.cgi/PytJTGW7Lok/5590/A364348/product%2FLABX-8110 #LLSIF #スクフェス #LoveLive #ラブライブ #μsicforever
 
+# 6
+
+https://i.schoolido.lu/songs/%E3%81%8D%E3%81%A3%E3%81%A8%E9%9D%92%E6%98%A5%E3%81%8B%E3%82%99%E8%81%9E%E3%81%93%E3%81%88%E3%82%8B.jpg
+
+🎶 On this day 2013 µ’s 「Kitto Seishun ga Kikoeru」released ✨ Discuss→ https://schoolido.lu/songs/%E3%81%8D%E3%81%A3%E3%81%A8%E9%9D%92%E6%98%A5%E3%81%8B%E3%82%99%E8%81%9E%E3%81%93%E3%81%88%E3%82%8B/ #LLSIF #スクフェス #LoveLive #ラブライブ #μsicforever
+
+
+https://i.schoolido.lu/songs/0NMftqTo9t2aakblnQCMuQYcCcQ2LlUO.jpg
+
+🎶 On this day 2019 Saint Snow’s 「Believe again」 released ✨ Discuss→ https://schoolido.lu/songs/Believe%20again/ #LLSIF #スクフェス #LoveLive #ラブライブ #Aqours #SaintSnow
+
+
+https://i.schoolido.lu/songs/pD6xnQlgR59GbSexSo4XYNhbD6G1IvOY.jpg
+
+🎶 On this day 2019 Aqours’ 「Brightest Melody」 released ✨ Discuss→ https://schoolido.lu/songs/Brightest%20Melody/ #LLSIF #スクフェス #LoveLive #ラブライブ #Aqours 
+
+
+https://i.schoolido.lu/songs/SMgtcv7bXf3mYKCX2MfHNd3F4JZIKH1B.jpg
+
+🎶 On this day 2019 Saint Aqours Snow’s 「Brightest Melody」 released ✨ Discuss→ https://schoolido.lu/songs/Brightest%20Melody/ #LLSIF #スクフェス #LoveLive #ラブライブ #Aqours #SaintSnow 
+
+
+# 9
+
+https://st.cdjapan.co.jp/pictures/l/09/22/LABM-7150.jpg
+
+🎶 On this day 2014 day two 「μ's→Next LoveLive! 2014: Endless Parade」🌟 Memorialized→ http://www.cdjapan.co.jp/aff/click.cgi/PytJTGW7Lok/5590/A364348/product%2FLABM-7150 #LLSIF #スクフェス #LoveLive #ラブライブ #μsicforever
+
+
+# 15
+
+https://i.schoolido.lu/songs/%E3%82%82%E3%81%8D%E3%82%99%E3%82%85%E3%81%A3%E3%81%A8love%E3%81%A6%E3%82%99%E6%8E%A5%E8%BF%91%E4%B8%AD.jpg
+
+🎶 On this day 2012 µ’s 「Mogyutto love de Sekkinchuu!」released ✨ Discuss→ https://schoolido.lu/songs/%E3%82%82%E3%81%8D%E3%82%99%E3%82%85%E3%81%A3%E3%81%A8%22love%22%E3%81%A6%E3%82%99%E6%8E%A5%E8%BF%91%E4%B8%AD%21/ #LLSIF #スクフェス #LoveLive #ラブライブ #μsicforever
 
 # 19
 
@@ -133,8 +167,116 @@ http://st.cdjapan.co.jp/pictures/l/16/30/LABX-8021.jpg
 
 🎶 On this day 2012 「μ’s First LoveLive!」🌟 Memorialized→ http://www.cdjapan.co.jp/aff/click.cgi/PytJTGW7Lok/5590/A364348/product%2FLABX-8021 #LLSIF #スクフェス #LoveLive #ラブライブ #μsicforever
 
+# 20
+
+https://i.schoolido.lu/songs/%E3%82%B9%E3%82%B9%E3%83%A1%E3%83%88%E3%82%A5%E3%83%A2%E3%83%AD%E3%82%A6.jpg
+
+🎶 On this day 2013 the trio’s 「Susume→Tomorrow」released✨ Discuss→ https://schoolido.lu/songs/%E3%82%B9%E3%82%B9%E3%83%A1%E2%86%92%E3%83%88%E3%82%A5%E3%83%A2%E3%83%AD%E3%82%A6/ #LLSIF #スクフェス #LoveLive #ラブライブ #μsicforever
+
+
+https://i.schoolido.lu/songs/STARTDASH.jpg
+
+🎶 On this day 2013 the trio’s 「Start:Dash!!」released✨ Discuss→ https://schoolido.lu/songs/START%3ADASH%21%21/ #LLSIF #スクフェス #LoveLive #ラブライブ #μsicforever
+
+# 23
+
+https://i.schoolido.lu/songs/ylgbxTi2lq4gjju3P2zVzLkyuws20tdZ.jpg
+
+🎶 On this day 2018 the solo 「In This Unstable World」 released ✨ Discuss→ https://schoolido.lu/songs/%E3%82%B9%E3%83%AA%E3%83%AA%E3%83%B3%E3%82%AF%E3%82%99%E3%83%BB%E3%83%AF%E3%83%B3%E3%82%A6%E3%82%A7%E3%82%A4/ #LLSIF #スクフェス #LoveLive #ラブライブ #Aqours
+
+https://i.schoolido.lu/songs/iflNBpt8dWkapup9gv7PeAClu7rooiR5.png
+
+🎶 On this day 2018 the solo 「Pianoforte Monologue」 released ✨ Discuss→ https://schoolido.lu/songs/%E3%82%B9%E3%83%AA%E3%83%AA%E3%83%B3%E3%82%AF%E3%82%99%E3%83%BB%E3%83%AF%E3%83%B3%E3%82%A6%E3%82%A7%E3%82%A4/ #LLSIF #スクフェス #LoveLive #ラブライブ #Aqours
+
+# 24
+
+https://i.schoolido.lu/songs/EnfC3pklxueAF88ldB67lbBVzLG199ZU.jpg
+
+🎶 On this day 2017 Aqours' 「Thrilling One Way」 released ✨ Discuss→ https://schoolido.lu/songs/%E3%82%B9%E3%83%AA%E3%83%AA%E3%83%B3%E3%82%AF%E3%82%99%E3%83%BB%E3%83%AF%E3%83%B3%E3%82%A6%E3%82%A7%E3%82%A4/ #LLSIF #スクフェス #LoveLive #ラブライブ #Aqours
+
+# 25
+
+https://st.cdjapan.co.jp/pictures/l/16/42/LABX-8225.jpg
+
+🎶 On this day 2017 Day One 「Aqours First Love Live! Step! Zero to One」 🍊⛵🍭🐬💮🌼🎹😈✨ Memorialized→ http://www.cdjapan.co.jp/aff/click.cgi/PytJTGW7Lok/5590/A364348/product%2FLABX-8225 #LLSIF #スクフェス #LoveLive #ラブライブ #Aqours
+
+# 26
+
+https://st.cdjapan.co.jp/pictures/l/16/44/LABX-8227.jpg
+
+🎶 On this day 2017 Day Two 「Aqours First Love Live! Step! Zero to One」 🍊⛵🍭🐬💮🌼🎹😈✨ Memorialized→ http://www.cdjapan.co.jp/aff/click.cgi/PytJTGW7Lok/5590/A364348/product%2FLABX-8227 #LLSIF #スクフェス #LoveLive #ラブライブ #Aqours
+
+# 27
+
+https://st.cdjapan.co.jp/pictures/l/03/39/LACA-9665.jpg
+
+🎶 On this day 2019 「Love Live! Sunshine!! The School Idol Movie Over the Rainbow OST: Sailing to the Rainbow」 ❄️❄️🍊⛵🍭🐬💮🌼🎹😈✨ released 💸 Get your copy→ http://www.cdjapan.co.jp/aff/click.cgi/PytJTGW7Lok/5590/A364348/product%2FLACA-9665 #LLSIF #スクフェス #LoveLive #ラブライブ #Aqours #SaintSnow
+
+
+
+
 
 # March
+
+# 2
+
+https://i.schoolido.lu/songs/MOMENT_RING.jpg
+
+🎶 On this day 2016 µ's 「MOMENT RING」 released ✨ Discuss→ https://schoolido.lu/songs/MOMENT%20RING/ #LLSIF #スクフェス #LoveLive #ラブライブ #μsicforever
+
+# 6
+
+https://i.schoolido.lu/songs/%E3%81%93%E3%82%8C%E3%81%8B%E3%82%89%E3%81%AESomeday.jpg
+
+🎶 On this day 2013 the septet's 「Kore kara no Someday」 released ✨ Discuss→ https://schoolido.lu/songs/%E3%81%93%E3%82%8C%E3%81%8B%E3%82%89%E3%81%AESomeday/ #LLSIF #スクフェス #LoveLive #ラブライブ #μsicforever
+
+
+https://i.schoolido.lu/songs/Wonder_zone.jpg
+
+🎶 On this day 2013 µ's 「Wonder zone」 released ✨ Discuss→ https://schoolido.lu/songs/Wonder%20zone/ #LLSIF #スクフェス #LoveLive #ラブライブ #μsicforever
+
+
+# 22
+
+https://i.schoolido.lu/songs/%E5%A4%A2%E3%81%AA%E3%81%8D%E5%A4%A2%E3%81%AF%E5%A4%A2%E3%81%97%E3%82%99%E3%82%83%E3%81%AA%E3%81%84.jpg
+
+🎶 On this day 2013 the solo 「Yume naki Yume wa Yume Janai」 released ✨ Discuss→ https://schoolido.lu/songs/%E5%A4%A2%E3%81%AA%E3%81%8D%E5%A4%A2%E3%81%AF%E5%A4%A2%E3%81%97%E3%82%99%E3%82%83%E3%81%AA%E3%81%84/ #LLSIF #スクフェス #LoveLive #ラブライブ #μsicforever
+
+# 23
+
+https://i.schoolido.lu/songs/gUwYQdrChIgvD5qSbEYk6E8QwacPC4mX.jpg
+
+🎶 On this day 2018 the solo 「Beginner's Sailing」 released ✨ Discuss→ https://schoolido.lu/songs/Beginner%27s%20Sailing/ #LLSIF #スクフェス #LoveLive #ラブライブ #Aqours
+
+
+# 24
+
+https://i.schoolido.lu/songs/efYn4lQ1ag7MVErcN6f3afQFa7xyEYZc.jpg
+
+🎶 On this day 2017 CYaRon!'s 「P.S. no Mukougawa」 released ✨ Discuss→ https://schoolido.lu/songs/P.S.%E3%81%AE%E5%90%91%E3%81%93%E3%81%86%E5%81%B4/ #LLSIF #スクフェス #LoveLive #ラブライブ #Aqours
+
+
+https://i.schoolido.lu/songs/eamIjZjMwl5MwO9KhibyJ2jgsf1wlQ4e.jpg
+
+🎶 On this day 2017 Azalea's 「LONELY TUNING」 released ✨ Discuss→ https://schoolido.lu/songs/LONELY%20TUNING/ #LLSIF #スクフェス #LoveLive #ラブライブ #Aqours
+
+
+https://i.schoolido.lu/songs/qbvUVRfv4McDadNtHX9yyrG52XWyNE4P.jpg
+
+🎶 On this day 2017 Guilty Kiss' 「Guilty Eyes Fever」 released ✨ Discuss→ https://schoolido.lu/songs/Guilty%20Eyes%20Fever/ #LLSIF #スクフェス #LoveLive #ラブライブ #Aqours
+
+https://i.schoolido.lu/songs/k6aOr9tfS6lV0e5wbgLD17vGIHBS1xPE.jpg
+
+🎶 On this day 2017 Aqours' 「Taiyou o Oikakero!」 released ✨ Discuss→ https://schoolido.lu/songs/%E5%A4%AA%E9%99%BD%E3%82%92%E8%BF%BD%E3%81%84%E3%81%8B%E3%81%91%E3%82%8D%21/ #LLSIF #スクフェス #LoveLive #ラブライブ #Aqours
+
+
+
+# 31
+
+https://st.cdjapan.co.jp/pictures/l/16/42/LABX-8161.jpg
+
+🎶 On this day 2016 Day One 「μ's FinalLoveLive! 2016: μ'sic Forever」 🌟  Memorialized→ http://www.cdjapan.co.jp/aff/click.cgi/PytJTGW7Lok/5590/A364348/product%2FLABX-8161 #LLSIF #スクフェス #LoveLive #ラブライブ #μsicforever
+
 
 # April
 
@@ -142,11 +284,47 @@ http://st.cdjapan.co.jp/pictures/l/16/30/LABX-8021.jpg
 
 http://st.cdjapan.co.jp/pictures/l/16/45/LABX-8164.jpg
 
-🎶 On this day 2016 Day Two 「μ's FinalLoveLive! 2016: μ'sic Forever」 Memorialized→ http://www.cdjapan.co.jp/aff/click.cgi/PytJTGW7Lok/5590/A364348/product%2FLABX-8164 #LLSIF #スクフェス #LoveLive #ラブライブ #μsicforever
+🎶 On this day 2016 Day Two 「μ's FinalLoveLive! 2016: μ'sic Forever」 🌟  Memorialized→ http://www.cdjapan.co.jp/aff/click.cgi/PytJTGW7Lok/5590/A364348/product%2FLABX-8164 #LLSIF #スクフェス #LoveLive #ラブライブ #μsicforever
 
 ## 2
 
 **Nine µ's solos released.** Add the CDs here someday when you have time. They're also used for character birthdays. https://en.wikipedia.org/wiki/Love_Live!
+
+https://st.cdjapan.co.jp/pictures/l/05/02/LACA-15381.jpg
+
+🎶 On this day 2014 Solo Live! 2 from μ's Honoka Kousaka 「orange cheers!」 released ✨ Get your copy 💸 http://www.cdjapan.co.jp/aff/click.cgi/PytJTGW7Lok/5590/A364348/product%2FLACA-15381 #LoveLive #LLSIF #スクフェス #μsicforever
+
+https://st.cdjapan.co.jp/pictures/l/05/03/LACA-15382.jpg
+
+🎶 On this day 2014 Solo Live! 2 from μ's Eri Ayase 「Ice Blue no Shunkan」 released ✨ Get your copy 💸 http://www.cdjapan.co.jp/aff/click.cgi/PytJTGW7Lok/5590/A364348/product%2FLACA-15382 #LoveLive #LLSIF #スクフェス #μsicforever
+
+https://st.cdjapan.co.jp/pictures/l/05/04/LACA-15383.jpg
+
+🎶 On this day 2014 Solo Live! 2 from μ's Kotori Minami 「Junpaku Romance」 released ✨ Get your copy 💸 http://www.cdjapan.co.jp/aff/click.cgi/PytJTGW7Lok/5590/A364348/product%2FLACA-15383 #LoveLive #LLSIF #スクフェス #μsicforever
+
+https://st.cdjapan.co.jp/pictures/l/05/05/LACA-15384.jpg
+
+🎶 On this day 2014 Solo Live! 2 from μ's Umi Sonoda 「Ao no Shinwa」 released ✨ Get your copy 💸 http://www.cdjapan.co.jp/aff/click.cgi/PytJTGW7Lok/5590/A364348/product%2FLACA-15384 #LoveLive #LLSIF #スクフェス #μsicforever
+
+https://st.cdjapan.co.jp/pictures/l/05/05/LACA-15385.jpg
+
+🎶 On this day 2014 Solo Live! 2 from μ's Rin Hoshizora 「Ring a yellow bell」 released ✨ Get your copy 💸 http://www.cdjapan.co.jp/aff/click.cgi/PytJTGW7Lok/5590/A364348/product%2FLACA-15385 #LoveLive #LLSIF #スクフェス #μsicforever
+
+https://st.cdjapan.co.jp/pictures/l/05/05/LACA-15386.jpg
+
+🎶 On this day 2014 Solo Live! 2 from μ's Maki Nishikino 「Scarlet Princess」 released ✨ Get your copy 💸 http://www.cdjapan.co.jp/aff/click.cgi/PytJTGW7Lok/5590/A364348/product%2FLACA-15386 #LoveLive #LLSIF #スクフェス #μsicforever
+
+https://st.cdjapan.co.jp/pictures/l/05/05/LACA-15387.jpg
+
+🎶 On this day 2014 Solo Live! 2 from μ's Nozomi Tojo 「Violet Moon」 released ✨ Get your copy 💸 http://www.cdjapan.co.jp/aff/click.cgi/PytJTGW7Lok/5590/A364348/product%2FLACA-15387 #LoveLive #LLSIF #スクフェス #μsicforever
+
+https://st.cdjapan.co.jp/pictures/l/05/05/LACA-15388.jpg
+
+🎶 On this day 2014 Solo Live! 2 from μ's Hanayo Koizumi 「Wakakusa no Season」 released ✨ Get your copy 💸 http://www.cdjapan.co.jp/aff/click.cgi/PytJTGW7Lok/5590/A364348/product%2FLACA-15388 #LoveLive #LLSIF #スクフェス #μsicforever
+
+https://st.cdjapan.co.jp/pictures/l/05/05/LACA-15389.jpg
+
+🎶 On this day 2014 Solo Live! 2 from μ's Niko Yazawa 「Momoiro Egao」 released ✨ Get your copy 💸 http://www.cdjapan.co.jp/aff/click.cgi/PytJTGW7Lok/5590/A364348/product%2FLACA-15389 #LoveLive #LLSIF #スクフェス #μsicforever
 
 ## 3
 
@@ -166,7 +344,7 @@ https://i.schoolido.lu/songs/x47L7VZ1VU24OQGSQgK2cyORcyY6hzAY.jpg
 
 ## 22
 
-https://i.schoolido.lu/songs/ミはμsicのミ.jpg
+https://i.schoolido.lu/songs/%E3%83%9F%E3%81%AF%CE%BCsic%E3%81%AE%E3%83%9F.jpg
 
 🎶 On this day 2015 µ's 「Mi wa μ'sic no Mi」 released ✨ Discuss→ https://schoolido.lu/songs/%E3%83%9F%E3%81%AF%CE%BC%27sic%E3%81%AE%E3%83%9F/ #LLSIF #スクフェス #LoveLive #ラブライブ #μsicforever
 
