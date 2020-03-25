@@ -3,107 +3,120 @@ tags: Sukutomo, Love Live!
 ---
 # SIF Events
 
+**If using the HackMD version instead of GitHub, be sure to use the md edit mode to copy, so that you avoid pasting unencoded characters into TweetDeck.**
+
+JP
+* 4th-  event announced 
+* 5th-  event start 
+* 10th- new u’s cards 
+* 15th- event end+Aqours cards 
+* 19th- event announced 
+* 20th- event start 
+* 25th- new u’s cards 
+* Last day of month-event end+new Aqours cards 
+
 ## Japan
 
+https://www.timeanddate.com/worldclock/converter.html?iso=20200331T060000&p1=137&p2=1440&p3=538
 
-https://www.timeanddate.com/worldclock/converter.html?iso=20200131T060000&p1=137&p2=1440&p3=538
+Match Round 15 
+https://schoolido.lu/events/Friendly%20Match%20Round%2015/
 
-Medley Festival Round 23 
-https://schoolido.lu/events/Medley%20Festival%20Round%2023/
+03/19 12:00
+🇯🇵JP🌟  Match Round 15 ⛵🌈✨  starts in twelve hours⏰→ https://schoolido.lu/events/Friendly%20Match%20Round%2015/ #LoveLive #スクフェス #ラブライブ #Aqours 
+#μsicforever
 
-01/19 11:00
-🇯🇵JP🌟 Medley Festival Round 23  ❄️⛄❄️ starts in twelve hours⏰→ https://schoolido.lu/events/Medley%20Festival%20Round%2023/ #LoveLive #スクフェス #ラブライブ #Aqours 
-#μsicforever 
+03/19 18:00
+🇯🇵JP🌟 Maintenance begins in five hours.  Match Round 15 ⛵🌈✨ starts in six hours⏰→ https://schoolido.lu/events/Friendly%20Match%20Round%2015/ #LoveLive #スクフェス #ラブライブ #Aqours 
 
-01/19 17:00
-🇯🇵JP🌟 Maintenance begins in five hours. Medley Festival Round 23 ❄️⛄❄️ starts in six hours⏰→ https://schoolido.lu/events/Medley%20Festival%20Round%2023/ #LoveLive #スクフェス #ラブライブ #Aqours 
+03/19 22:00
+🇯🇵JP🌟 Maintenance begins in an hour.  Match Round 15 ⛵🌈✨  starts in two hours⏰→ https://schoolido.lu/events/Friendly%20Match%20Round%2015/ #LoveLive #スクフェス #ラブライブ #Aqours 
 
-01/19 21:00
-🇯🇵JP🌟 Maintenance begins in an hour. Medley Festival Round 23 ❄️⛄❄️ starts in two hours⏰→ Medley%20Festival%20Round%2023/ #LoveLive #スクフェス #ラブライブ #Aqours
+03/19 23:00
+🇯🇵JP🌟 Maintenance begins.  Match Round 15 ⛵🌈✨  starts in an hour⏰→ https://schoolido.lu/events/Friendly%20Match%20Round%2015/ #LoveLive #スクフェス #ラブライブ #Aqours 
 
-01/19 22:00
-🇯🇵JP🌟 Maintenance begins. Medley Festival Round 23 ❄️⛄❄️ starts in an hour⏰→ Medley%20Festival%20Round%2023/ #LoveLive #スクフェス #ラブライブ #Aqours
+03/05 00:00
+🇯🇵JP🌟  Match Round 15 ⛵🌈✨  begins! Will you SR rush? Countdown⏰→ https://schoolido.lu/events/Friendly%20Match%20Round%2015/ #LoveLive #スクフェス #ラブライブ #Aqours 
 
-01/19 23:00
-🇯🇵JP🌟 Medley Festival Round 23 ❄️⛄❄️ begins! Will you SR rush? Countdown⏰→ Medley%20Festival%20Round%2023/ #LoveLive #スクフェス #ラブライブ #Aqours
+03/24 23:00
+🇯🇵JP🌟  Match Round 15 ⛵🌈✨  roughly halfway through. How's the event going?→ https://schoolido.lu/events/Friendly%20Match%20Round%2015/ #LoveLive #スクフェス #ラブライブ #Aqours 
 
-01/24 22:00
-🇯🇵JP🌟 Medley Festival Round 23 ❄️⛄❄️ roughly halfway through. How's the event going?→ Medley%20Festival%20Round%2023/ #LoveLive #スクフェス #ラブライブ #Aqours
+03/28 23:00
+🇯🇵JP🌟 48 hours remaining in  Match Round 15 ⛵🌈✨. Get those You/Mari SRs. ⏰→ https://schoolido.lu/events/Friendly%20Match%20Round%2015/ #LoveLive #スクフェス #ラブライブ #Aqours 
 
-01/28 22:00
-🇯🇵JP🌟 48 hours remaining in Medley Festival Round 23 ❄️⛄❄️. Get those Rin/Maki SRs. ⏰→ Medley%20Festival%20Round%2023/ #LoveLive #スクフェス #ラブライブ #Aqours
+03/29 23:00
+🇯🇵JP🌟 24 hours remaining in  Match Round 15 ⛵🌈✨. Get those You/Mari SRs. ⏰→ https://schoolido.lu/events/Friendly%20Match%20Round%2015/ #LoveLive #スクフェス #ラブライブ #Aqours 
 
-01/29 22:00
-🇯🇵JP🌟 24 hours remaining in Medley Festival Round 23 ❄️⛄❄️. Get those Rin/Maki SRs. ⏰→ Medley%20Festival%20Round%2023/ #LoveLive #スクフェス #ラブライブ #Aqours
+03/30 17:00
+🇯🇵JP🌟 6 hours remaining in  Match Round 15 ⛵🌈✨. Get those You/Mari SRs. ⏰→ https://schoolido.lu/events/Friendly%20Match%20Round%2015/ #LoveLive #スクフェス #ラブライブ #Aqours 
 
-01/30 16:00
-🇯🇵JP🌟 6 hours remaining in Medley Festival Round 23 ❄️⛄❄️. Get those Rin/Maki SRs. ⏰→ Medley%20Festival%20Round%2023/ #LoveLive #スクフェス #ラブライブ #Aqours
+03/30 22:00
+🇯🇵JP🌟 1 hour remains in  Match Round 15 ⛵🌈✨. Last chance for You/Mari SRs. ⏰→ https://schoolido.lu/events/Friendly%20Match%20Round%2015/ #LoveLive #スクフェス #ラブライブ #Aqours 
 
-01/30 21:00
-🇯🇵JP🌟 1 hour remains in Medley Festival Round 23 ❄️⛄❄️. Last chance for Rin/Maki SRs. ⏰→ Medley%20Festival%20Round%2023/ #LoveLive #スクフェス #ラブライブ #Aqours
+03/30 23:00
+🇯🇵JP🌟  Match Round 15 ⛵🌈✨  complete. Maintenance begins. Discuss the event→ https://schoolido.lu/events/Friendly%20Match%20Round%2015/ #LoveLive #スクフェス #ラブライブ #Aqours 
 
-01/30 22:00
-🇯🇵JP🌟 Medley Festival Round 23 ❄️⛄❄️ complete. Maintenance begins. Discuss the event→ Medley%20Festival%20Round%2023/ #LoveLive #スクフェス #ラブライブ #Aqours
-
-01/30 23:00
-🇯🇵JP🌟 Maintenance complete. Enter your Medley Festival Round 23  🥇🥈🥉 ranking here→ Medley%20Festival%20Round%2023/ #LoveLive #スクフェス #ラブライブ #Aqours
+03/31 00:00
+🇯🇵JP🌟 Maintenance complete. Enter your  Match Round 15 🥇🥈🥉 ranking here→ https://schoolido.lu/events/Friendly%20Match%20Round%2015/ #LoveLive #スクフェス #ラブライブ #Aqours 
 
 A couple days later
-🇯🇵JP 🌟 Don't forget to enter your Medley Festival Round 23  🥇🥈🥉 event ranking here→ Medley%20Festival%20Round%2023/ #LoveLive #スクフェス #ラブライブ #Aqours
+🇯🇵JP 🌟 Don't forget to enter your  Match Round 15 🥇🥈🥉 event ranking here→ https://schoolido.lu/events/Friendly%20Match%20Round%2015/ #LoveLive #スクフェス #ラブライブ #Aqours 
+
+
 
 ***
 
 ## WorldWide
 
 
-https://www.timeanddate.com/worldclock/converter.html?iso=20200115T080000&p1=137&p2=1440&p3=538
+https://www.timeanddate.com/worldclock/converter.html?iso=20200403T080000&p1=137&p2=1440&p3=538
 
-You're The Best Partner
+Round 38 SCORE MATCH
 
-https://schoolido.lu/events/%E3%82%AD%E3%83%9F%E3%81%AF%E6%9C%80%E9%AB%98%E3%81%AEPartner/
+https://schoolido.lu/events/Score%20Match%20Round%2041/
 
-01/06 13:00
-🗺WW🌟 12 hours before the You're The Best Partner 🎹✨ Countdown ⏰→ https://schoolido.lu/events/%E3%82%AD%E3%83%9F%E3%81%AF%E6%9C%80%E9%AB%98%E3%81%AEPartner/ #LLSIF #LoveLive #スクフェス #ラブライブ #Aqours 
-#μsicforever
+03/24 14:00
+🗺WW🌟 12 hours before the Round 38 SCORE MATCH ⭐🎄⭐ Countdown ⏰→ https://schoolido.lu/events/Score%20Match%20Round%2041/ #LLSIF #LoveLive #スクフェス #ラブライブ #μsicforever 
+#Aqours
 
-01/06 19:00
-🗺WW🌟 Maintenance begins in five hours. You're The Best Partner   🎹✨  starts in six hours ⏰→ https://schoolido.lu/events/%E3%82%AD%E3%83%9F%E3%81%AF%E6%9C%80%E9%AB%98%E3%81%AEPartner/ #LLSIF #LoveLive #スクフェス  #ラブライブ #Aqours  
+03/24 20:00
+🗺WW🌟 Maintenance begins in five hours. Round 38 SCORE MATCH ⭐🎄⭐ starts in six hours ⏰→ https://schoolido.lu/events/Score%20Match%20Round%2041/ #LLSIF #LoveLive #スクフェス #ラブライブ #μsicforever 
 
-01/06 23:00
-🗺WW🌟 Maintenance begins in an hour. You're The Best Partner   🎹✨  starts in two hours⏰→ https://schoolido.lu/events/%E3%82%AD%E3%83%9F%E3%81%AF%E6%9C%80%E9%AB%98%E3%81%AEPartner/ #LLSIF #LoveLive #スクフェス  #ラブライブ #Aqours  
+03/25 00:00
+🗺WW🌟 Maintenance begins in an hour. Round 38 SCORE MATCH ⭐🎄⭐ starts in two hours⏰→ https://schoolido.lu/events/Score%20Match%20Round%2041/ #LLSIF #LoveLive #スクフェス #ラブライブ #μsicforever 
 
-01/07 00:00
-🗺WW🌟 Maintenance begins. You're The Best Partner   🎹✨  starts in an hour⏰→ https://schoolido.lu/events/%E3%82%AD%E3%83%9F%E3%81%AF%E6%9C%80%E9%AB%98%E3%81%AEPartner/ #LLSIF #LoveLive #スクフェス  #ラブライブ #Aqours  
+03/25 01:00
+🗺WW🌟 Maintenance begins. Round 38 SCORE MATCH ⭐🎄⭐ starts in an hour⏰→ https://schoolido.lu/events/Score%20Match%20Round%2041/ #LLSIF #LoveLive #スクフェス #ラブライブ #μsicforever 
 
-01/07 01:00
-🗺WW🌟 You're The Best Partner   🎹✨ begins! Will you SR rush? Countdown⏰→ https://schoolido.lu/events/%E3%82%AD%E3%83%9F%E3%81%AF%E6%9C%80%E9%AB%98%E3%81%AEPartner/ #LLSIF #LoveLive #スクフェス  #ラブライブ #Aqours  
+03/25 02:00
+🗺WW🌟 Round 38 SCORE MATCH ⭐🎄⭐ begins! Will you SR rush? Countdown⏰→ https://schoolido.lu/events/Score%20Match%20Round%2041/ #LLSIF #LoveLive #スクフェス #ラブライブ #μsicforever 
 
-01/10 00:00
-🗺WW🌟 You're The Best Partner   🎹✨. roughly halfway through. How's the event going? https://schoolido.lu/events/%E3%82%AD%E3%83%9F%E3%81%AF%E6%9C%80%E9%AB%98%E3%81%AEPartner/ #LLSIF #LoveLive #スクフェス  #ラブライブ #Aqours  
+03/29 13:00
+🗺WW🌟 Round 38 SCORE MATCH ⭐🎄⭐ roughly halfway through. How's the event going? https://schoolido.lu/events/Score%20Match%20Round%2041/ #LLSIF #LoveLive #スクフェス #ラブライブ #μsicforever 
 
-01/12 00:00
-🗺WW🌟 48 hours remaining in You're The Best Partner   🎹✨.  Get those Mari/Riko SRs. Countdown⏰→ https://schoolido.lu/events/%E3%82%AD%E3%83%9F%E3%81%AF%E6%9C%80%E9%AB%98%E3%81%AEPartner/ #LLSIF #LoveLive #スクフェス  #ラブライブ #Aqours  
+04/01 01:00
+🗺WW🌟 48 hours remaining in Round 38 SCORE MATCH ⭐🎄⭐. Get those Honoka/Kotori SRs. Countdown⏰→ https://schoolido.lu/events/Score%20Match%20Round%2041/ #LLSIF #LoveLive #スクフェス #ラブライブ #μsicforever 
 
-01/13 00:00
-🗺WW🌟 24 hours remaining in You're The Best Partner   🎹✨.  Get those Mari/Riko SRs. Countdown⏰→ https://schoolido.lu/events/%E3%82%AD%E3%83%9F%E3%81%AF%E6%9C%80%E9%AB%98%E3%81%AEPartner/ #LLSIF #LoveLive #スクフェス  #ラブライブ #Aqours  
+04/02 01:00
+🗺WW🌟 24 hours remaining in Round 38 SCORE MATCH ⭐🎄⭐. Get those Honoka/Kotori SRs. Countdown⏰→ https://schoolido.lu/events/Score%20Match%20Round%2041/ #LLSIF #LoveLive #スクフェス #ラブライブ #μsicforever 
 
-01/14 18:00
-🗺WW🌟 6 hours remaining in You're The Best Partner   🎹✨. Get those Mari/Riko SRs. Countdown⏰→ https://schoolido.lu/events/%E3%82%AD%E3%83%9F%E3%81%AF%E6%9C%80%E9%AB%98%E3%81%AEPartner/ #LLSIF #LoveLive #スクフェス  #ラブライブ #Aqours  
+04/02 19:00
+🗺WW🌟 6 hours remaining in Round 38 SCORE MATCH ⭐🎄⭐. Get those Honoka/Kotori SRs. Countdown⏰→ https://schoolido.lu/events/Score%20Match%20Round%2041/ #LLSIF #LoveLive #スクフェス #ラブライブ #μsicforever 
 
-01/14 22:00
-🗺WW🌟 2 hours remaining in You're The Best Partner   🎹✨. Get those Mari/Riko SRs. Countdown⏰→ https://schoolido.lu/events/%E3%82%AD%E3%83%9F%E3%81%AF%E6%9C%80%E9%AB%98%E3%81%AEPartner/ #LLSIF #LoveLive #スクフェス  #ラブライブ #Aqours  
+04/02 23:00
+🗺WW🌟 2 hours remaining in Round 38 SCORE MATCH ⭐🎄⭐. Get those Honoka/Kotori SRs. Countdown⏰→ https://schoolido.lu/events/Score%20Match%20Round%2041/ #LLSIF #LoveLive #スクフェス #ラブライブ #μsicforever 
 
-01/14 23:00
-🗺WW🌟 1 hour remains in You're The Best Partner   🎹✨. Get those Mari/Riko SRs. Countdown⏰→ https://schoolido.lu/events/%E3%82%AD%E3%83%9F%E3%81%AF%E6%9C%80%E9%AB%98%E3%81%AEPartner/ #LLSIF #LoveLive #スクフェス  #ラブライブ #Aqours  
+04/03 00:00
+🗺WW🌟 1 hour remains in Round 38 SCORE MATCH ⭐🎄⭐. Get those Honoka/Kotori SRs. Countdown⏰→ https://schoolido.lu/events/Score%20Match%20Round%2041/ #LLSIF #LoveLive #スクフェス #ラブライブ #μsicforever 
 
-01/15 00:00
-🗺WW🌟 You're The Best Partner   🎹✨.  complete. Maintenance begins. Discuss the event→ https://schoolido.lu/events/%E3%82%AD%E3%83%9F%E3%81%AF%E6%9C%80%E9%AB%98%E3%81%AEPartner/ #LLSIF #LoveLive #スクフェス  #ラブライブ #Aqours  
+04/03 01:00
+🗺WW🌟 Round 38 SCORE MATCH ⭐🎄⭐. complete. Maintenance begins. Discuss the event→ https://schoolido.lu/events/Score%20Match%20Round%2041/ #LLSIF #LoveLive #スクフェス #ラブライブ #μsicforever 
 
-01/15 01:00
-🗺WW🌟 Maintenance complete. ✨ Enter your You're The Best Partner 🥇🥈🥉 ranking here→ https://schoolido.lu/events/%E3%82%AD%E3%83%9F%E3%81%AF%E6%9C%80%E9%AB%98%E3%81%AEPartner/ #LLSIF #LoveLive #スクフェス  #ラブライブ #Aqours  
+04/03 02:00
+🗺WW🌟 Maintenance complete. ✨ Enter your Round 38 SCORE MATCH 🥇🥈🥉 ranking here→ https://schoolido.lu/events/Score%20Match%20Round%2041/ #LLSIF #LoveLive #スクフェス #ラブライブ #μsicforever 
 
 A couple days later
-🗺WW 🌟 Don't forget to enter your You're The Best Partner 🥇🥈🥉 event ranking here→ https://schoolido.lu/events/%E3%82%AD%E3%83%9F%E3%81%AF%E6%9C%80%E9%AB%98%E3%81%AEPartner/ #LLSIF #LoveLive #スクフェス  #ラブライブ #Aqours  
+🗺WW 🌟 Don't forget to enter your Round 38 SCORE MATCH 🥇🥈🥉 event ranking here→ https://schoolido.lu/events/Score%20Match%20Round%2041/ #LLSIF #LoveLive #スクフェス #ラブライブ #μsicforever 
 
 
 
