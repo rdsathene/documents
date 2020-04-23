@@ -3,6 +3,7 @@ title: Assignment and Delegation
 slideOptions:
   transition: slide
   theme: solarized 
+image: https://i.imgur.com/PWOPZbH.png
 tags: PCL, Law School, slides
 --- <!-- I prefer the colors of sky theme, but kerning is annoying -->
 
@@ -10,6 +11,7 @@ tags: PCL, Law School, slides
 <!-- .slide: data-background="https://i.imgur.com/ScI1dkF.png" -->
 <!-- ![](https://i.imgur.com/PWOPZbH.png) -->
 <!-- ![](https://i.imgur.com/ScI1dkF.png) -->
+[@peoplescollolaw](https://twitter.com/peoplescollolaw)
 
 ---
 
@@ -155,7 +157,7 @@ The following are also irrevocable assignments:
 
 ## Multiple Successive Assignments
 
-**gratuitous:** last assignment prevails, unless a previous assignment was made irrevocable
+**gratuitous:** last assignment prevails, unless a previous assignment was made [irrevocable](#/8/1)
 
 **value:** first assignee for consideration prevails, unless a later, good faith assignee obtains payment or judgement first, obtains a novation with obligor, or obtains evidence of ownership (e.g. a deed or other document)
 
@@ -242,7 +244,7 @@ Was there a delegation, or a delegation plus an assumption of the duty?
 
 ## Novation?
 
-See previous discussion on novation under assignment.
+See previous discussion on [novation](#/4/4) under assignment.
 
 However, if an obligee expressly consents to the transfer of duties, it may be construed as a novation.
 
@@ -268,3 +270,5 @@ However, if an obligee expressly consents to the transfer of duties, it may be c
 
 [June 2018 Q1](http://www.calbar.ca.gov/Portals/0/documents/admissions/fyx/FYLSX_Jun2018_SelectedAnswers.pdf) 
 [October 2014 Q4](http://www.calbar.ca.gov/Portals/0/documents/admissions/fyx/October2014FYLSX_SelectedAnswers_R.pdf)
+
+[@peoplescollolaw](https://twitter.com/peoplescollolaw)
