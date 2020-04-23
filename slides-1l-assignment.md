@@ -123,7 +123,7 @@ The following are also irrevocable assignments:
 
 ---
 
-## Party Rights and Liablities
+## Party Rights and Liabilities
 
 *Assignee v. Obligor*
 
@@ -133,7 +133,7 @@ The following are also irrevocable assignments:
 
 ----
 
-## Party Rights and Liablities
+## Party Rights and Liabilities
 
 *Assignor v. Obligor*
 
@@ -141,7 +141,7 @@ The following are also irrevocable assignments:
 
 ----
 
-## Party Rights and Liablities
+## Party Rights and Liabilities
 
 *Assignee v. Assignor*
 
@@ -157,7 +157,7 @@ The following are also irrevocable assignments:
 
 **gratuitous:** last assignment prevails, unless a previous assignment was made irrevocable
 
-**value:** first assignee for consideration prevails, unless a later, good faith assignee obtains payment or judgement first, obtains a novation with obligor, or obtains evidence of ownership (e.g. a deed or other document.
+**value:** first assignee for consideration prevails, unless a later, good faith assignee obtains payment or judgement first, obtains a novation with obligor, or obtains evidence of ownership (e.g. a deed or other document)
 
 ---
 
@@ -213,7 +213,7 @@ Exceptions:
 
 ---
 
-## Party Rights and Liablities
+## Party Rights and Liabilities
 
 *Obligee*
 
@@ -221,26 +221,38 @@ Exceptions:
 
 ----
 
-## Party Rights and Liablities
+## Party Rights and Liabilities
 
 *Delagator*
 
-- remains liable for duties under contract, but secondarily liable 
+- remains liable for duties under contract, but is secondarily liable 
 
 ----
 
-## Party Rights and Liablities
+## Party Rights and Liabilities
 
-*Assignee v. Assignor*
+*Delagatee*
 
-- gratuitous assignment, no recovery
-- assignment for value subject to **implied warranties of assignment**, if breached allow recover for damages
-	- right assigned exists
-	- right assigned not subject to defenses
-	- assignor will not impair of defeat value of the right
+Was there a delegation, or a delegation plus an assumption of the duty?
+
+- delegation creates power for another to perform for delegator
+- assumption occurs when delagatee's promise is supported by consideration (third party)
+
+----
+
+## Novation?
+
+See previous discussion on novation under assignment.
+
+However, if an obligee expressly consents to the transfer of duties, it may be construed as a novation.
 
 ---
 
+## No Assignment Clauses
+
+- <span>clause prohibiting assignment of "the contract" generally construed to bar delegation <!-- .element: class="fragment" data-fragment-index="1" --></span>
+- <span>clause prohibiting assignment of rights provide obligor ground for suit, but assignment is still valid (power v. right) <!-- .element: class="fragment" data-fragment-index="2" --></span>
+- <span>clause stating attempts to assign with be **VOID** render void (power v. right) <!-- .element: class="fragment" data-fragment-index="3" --></span>
 
 ---
 
@@ -256,6 +268,3 @@ Exceptions:
 
 [June 2018 Q1](http://www.calbar.ca.gov/Portals/0/documents/admissions/fyx/FYLSX_Jun2018_SelectedAnswers.pdf) 
 [October 2014 Q4](http://www.calbar.ca.gov/Portals/0/documents/admissions/fyx/October2014FYLSX_SelectedAnswers_R.pdf)
-
-
-
