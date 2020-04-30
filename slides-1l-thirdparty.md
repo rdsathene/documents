@@ -1,5 +1,5 @@
 ---
-title: Third Party Beneficiaries
+title: Third-Party Beneficiaries
 slideOptions:
   transition: slide
   theme: solarized 
@@ -15,7 +15,7 @@ tags: PCL, Law School, slides
 
 ---
 
-## Third Party Beneficiaries
+## Third-Party Beneficiaries
 
 When a promisor and a promisee make an contractual agreement that the promisor will tender their performance (a benefit) to a party other than the promisee, we have a third party beneficiary situation.
 
@@ -25,7 +25,7 @@ When a promisor and a promisee make an contractual agreement that the promisor w
 
 Promisor and Promisee
 
-----
+---
 
 Promisor and Promisee
 
@@ -33,7 +33,7 @@ Promisor and Promisee
 
 Third Party
 
-----
+---
 
 ## After Contracting
 
@@ -59,174 +59,90 @@ Approach problems by asking the following:
 ## Can the Third Party Beneficiary Sue?
 
 - an intended third party beneficiary can sue
-- an incidental third party beneficiary has not contractual rights
+- an incidental third party beneficiary has **no** contractual rights
 
-The latter may benefit, but it is **not** the primary purpose of contract
+The latter may benefit, but it is **not** the primary purpose of contract to benefit them
 
 ---
 
 ## Intended Beneficiary?
 
-Generally the language of the contract will 
+Frequently the language of the contract will indicate if the promisee intended to confer a right of performance to the third party.
 
-- assignor dies or goes bankrupt
-- assignor makes a subsequent assignment (to another assignee)
-- assignor notifies obligor or assignee of revocation
-- assignor takes direct performance from obligor
+If it is not clear in the language of the contract, then the court will look at several factors to determine intent.
 
 ---
 
-## Irrevocable
+## Factors to Determine Intent
 
-The following are irrevocable assignments:
-
-- assignments for value
-    - for consideration
-    - as security for or as payment for preexisting debt
-
-----
-
-## Irrevocable
-
-The following are also irrevocable assignments:
-
-- detrimental reliance on a gratuitous assignment
-    - foreseeable reliance; **and** actual reliance (change of position)
-- performance or payment tendered by obligor
-- special evidence of the assignment (token chose or writing of same)
+- Is the third party expressly designated in the contract?
+- Is performance to be made directly to the third party?
+- Does the third party have any rights defined in the contract?
+- Does the third party have a relationship with the promisee that would create an inference of intent to benefit?
 
 ---
 
-## Party Rights and Liabilities
+## Which Type of Intended Beneficiary?
 
-*Assignee v. Obligor*
+Ask what the promisee's purpose was in inducing the promisor's performance to the third party.
 
-- recover from the obligor directly
-- obligor has same defenses as against assignor (assignee steps into shoes)
-- payment by obligor to assignor prior to notice exempted
-
-----
-
-## Party Rights and Liabilities
-
-*Assignor v. Obligor*
-
-- assignor has no rights in the contract after an effective assignment
-
-----
-
-## Party Rights and Liabilities
-
-*Assignee v. Assignor*
-
-- gratuitous assignment, no recovery
-- assignment for value subject to **implied warranties of assignment**, if breached allow recover for damages
-	- right assigned exists
-	- right assigned not subject to defenses
-	- assignor will not impair of defeat value of the right
+- **Creditor Beneficiary**: the promisee owed the third party an obligation
+- **Donee Beneficiary**: the promisee wanted to confer a gift on third party
 
 ---
 
-## Multiple Successive Assignments
+## Can the Contracting Parties Make Changes?
 
-**gratuitous:** last assignment prevails, unless a previous assignment was made [irrevocable](#/8/1)
-
-**value:** first assignee for consideration prevails, unless a later, good faith assignee obtains payment or judgement first, obtains a novation with obligor, or obtains evidence of ownership (e.g. a deed or other document)
+The promisor and promisee are free to modify, rescind, or discharge the contract as they see fit until the intended beneficiary's rights have vested.
 
 ---
 
-## Delegation
+## Vesting of Rights
 
-A delegation is a present transfer of duties under a contract.
+An intended beneficiary's rights vest when they…
 
----
-
-## Concepts
-
-Promisor and Promisee
-
-----
-
-Promisor and Promisee
-
-↕️ 
-
-Delegator (Obligor) and Obligee
-
-Delegator ➡️ Delegatee
-
-----
-
-![delegation](https://i.imgur.com/vW3tdfi.png)
-
-----
-
-Delegatee and Obligee
-
-are now
-
-Promisor and Promisee
+- <span>justifiably rely to their detriment on the promise (change of position)<!-- .element: class="fragment" data-fragment-index="1" --></span>
+- <span>bring a suit to enforce the promise<!-- .element: class="fragment" data-fragment-index="2" --></span>
+- <span>manifest assent to the promise at the request of either party<!-- .element: class="fragment" data-fragment-index="3" --></span>
 
 ---
 
-#### **General Rule:** all contracts are delegable.
+## Party Rights and Defenses
 
-Exceptions:
+*Third-Party Beneficiary v. Promisor*
 
-- <span>duties involving personal judgment, skill, or special trust<!-- .element: class="fragment" data-fragment-index="1" --></span>
-- <span>materially changes obligee's expectancy of performance<!-- .element: class="fragment" data-fragment-index="2" --></span>
-- <span>contract expressly prohibits delegation or assignment<!-- .element: class="fragment" data-fragment-index="3" --></span>
-
----
-
-## Requirements
-
-- an existing valid contract
-- a promisor (delegator) making present words of intent to delegate
-    - no writing required
+- the beneficiary may sue the promisor for failure to perform
+- promisor's defenses
+	- any defenses that promisor had against promisee
+	- if the promise is not absolute, then promisor can assert the defenses the promisee would have against the beneficiary
 
 ---
 
-## Party Rights and Liabilities
+## Party Rights and Defenses
 
-*Obligee*
+*Third-Party Beneficiary v. Promisee*
 
-- must accept duties from delagatee, unless those duties were nondelegable
-
-----
-
-## Party Rights and Liabilities
-
-*Delagator*
-
-- remains liable for duties under contract, but is secondarily liable 
-
-----
-
-## Party Rights and Liabilities
-
-*Delagatee*
-
-Was there a delegation, or a delegation plus an assumption of the duty?
-
-- delegation creates power for another to perform for delegator
-- assumption occurs when delagatee's promise is supported by consideration (third party)
-
-----
-
-## Novation?
-
-See previous discussion on [novation](#/4/4) under assignment.
-
-However, if an obligee expressly consents to the transfer of duties, it may be construed as a novation.
+- **Donee Beneficiary:** generally **no** right to sue promisee
+    - exception where there's been detrimental reliance (change of position)
+        - in that case they are suing under promissory estoppel/detrimental reliance, not as a third-party beneficiary
 
 ---
 
-## No Assignment Clauses
+## Party Rights and Defenses
 
-- <span>clause prohibiting assignment of "the contract" generally construed to bar delegation <!-- .element: class="fragment" data-fragment-index="1" --></span>
-- <span>clause prohibiting assignment of rights provide obligor ground for suit, but assignment is still valid (power v. right) <!-- .element: class="fragment" data-fragment-index="2" --></span>
-- <span>clause stating attempts to assign with be **VOID** render void (power v. right) <!-- .element: class="fragment" data-fragment-index="3" --></span>
+*Third-Party Beneficiary v. Promisee*
+
+- **Creditor Beneficiary:** can sue for the value of the *pre-existing* debt or obligation
+
+---
+
+## Party Rights and Defenses
+
+*Promisee v. Promisor*
+
+- promisee may sue for promisor's failure to tender performance to third-party beneficiary
+    - promisee and third-party beneficiary cannot both recover from promisor
+    - courts will sometimes order ***specific performance*** in circumstance where the promisor was to pay for an unpaid debt
 
 ---
 
