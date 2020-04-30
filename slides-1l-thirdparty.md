@@ -17,21 +17,7 @@ tags: PCL, Law School, slides
 
 ## Third Party Beneficiaries
 
-In contrast to third party rights, which are defined in the contract, assignments and delegations occur after a contract is formed.
-
----
-
-## A party…
-
-Assigns rights — *performance owed*
-
-Delegates duties — *performance due*
-
----
-
-## Assignment
-
-An assignment is a present transfer of rights under a contract.
+When a promisor and a promisee make an contractual agreement that the promisor will tender their performance (a benefit) to a party other than the promisee, we have a third party beneficiary situation.
 
 ---
 
@@ -43,76 +29,45 @@ Promisor and Promisee
 
 Promisor and Promisee
 
-↕️ 
+↘️ 
 
-Obligor and Assignor
-
-Assignor ➡️ Assignee
+Third Party
 
 ----
 
-![assignment](https://i.imgur.com/AJ6Taa8.png)
+## After Contracting
 
-----
+Promisor: owes a duty of performance to the third party
 
-Obligor and Assignee
+Promisee: is owed the performance to the third party
 
-are now
-
-Promisor and Promisee
-
-----
-
-### Novation?
-
-This is different than a novation in that novation requires agreement by all parties 
-
-(*see* full rule *barbi* VI.E.8).
-
-Here, the obligor is not part of the agreement to transfer rights from assignor to assignee.
+Third Party: not in privity to contract, but owed performance by promisor
 
 ---
 
-#### **General Rule:** all contracts are assignable.
+## Overall Analysis
 
-Exceptions:
+Approach problems by asking the following:
 
-<span>- substantially change obligor's duty, increase their risk, or reduce contract value<!-- .element: class="fragment" data-fragment-index="1" --></span>
-<span>- substantially change obligor's duty, increase their risk, or reduce contract value
-- doesn't disproportionally alter quantities in output or requirements contracts<!-- .element: class="fragment" data-fragment-index="2" --></span>
-<span>- substantially change obligor's duty, increase their risk, or reduce contract value
-- doesn't disproportionally alter quantities in output or requirements contracts
-- personal services requiring judgment, skill, or special trust<!-- .element: class="fragment" data-fragment-index="3" --></span>
-<span>- substantially change obligor's duty, increase their risk, or reduce contract value
-- doesn't disproportionally alter quantities in output or requirements contracts
-- personal services requiring judgment, skill, or special trust
-- contract expressly prohibits assignment<!-- .element: class="fragment" data-fragment-index="4" --></span>
+- <span>Is the third party an intended beneficiary?<!-- .element: class="fragment" data-fragment-index="1" --></span>
+- <span>Can the promisor and promisee change contract terms without the third party's consent?<!-- .element: class="fragment" data-fragment-index="2" --></span>
+    - <span>Alternatively, ask have the third party's rights vested?<!-- .element: class="fragment" data-fragment-index="3" --></span>
+- <span>What are the rights of the parties?<!-- .element: class="fragment" data-fragment-index="4" --></span>
 
 ---
 
-#### **General Rule:** all contracts are assignable.
+## Can the Third Party Beneficiary Sue?
 
-Exceptions:
+- an intended third party beneficiary can sue
+- an incidental third party beneficiary has not contractual rights
 
-- <span>substantially change obligor's duty, increase their risk, or reduce contract value<!-- .element: class="fragment" data-fragment-index="1" --></span>
-- <span>doesn't disproportionally alter quantities in output or requirements contracts<!-- .element: class="fragment" data-fragment-index="2" --></span>
-- <span>personal services requiring judgment, skill, or special trust<!-- .element: class="fragment" data-fragment-index="3" --></span>
-- <span>contract expressly prohibits assignment<!-- .element: class="fragment" data-fragment-index="4" --></span>
+The latter may benefit, but it is **not** the primary purpose of contract
 
 ---
 
-## Requirements
+## Intended Beneficiary?
 
-- an existing valid contract
-- a promisee (assignor) making present words of assignment (assign, transfer, sell, convey, etc.)
-    - no writing required except interest in land, wages, security interests
-    - no consideration required
-
----
-
-## Revocation
-
-Gratuitous assignments are always revocable:
+Generally the language of the contract will 
 
 - assignor dies or goes bankrupt
 - assignor makes a subsequent assignment (to another assignee)
