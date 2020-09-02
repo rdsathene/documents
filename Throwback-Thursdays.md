@@ -5,6 +5,10 @@ image: https://i.imgur.com/74UvaFU.jpg
 
 # Throwback Thursdays
 
+https://i.schoolido.lu/events/EN/The%20Night%20Sky%20Knows%20EverythingFybYLgE90AWHKJlu.png
+
+⏳ TBT. Participated in 「The Night Sky Knows Everything」? Tell us about it→ https://schoolido.lu/events/%E5%A4%9C%E7%A9%BA%E3%81%AF%E3%81%AA%E3%82%93%E3%81%A6%E3%82%99%E3%82%82%E7%9F%A5%E3%81%A3%E3%81%A6%E3%82%8B%E3%81%BF%E3%81%9F%E3%81%84/ #LLSIF #スクフェス #LoveLive #ラブライブ #TBT
+
 https://i.schoolido.lu/events/EN/Round%2020%20SCORE%20MATCHeJ9FvYaJI710GeHM.png
 
 ⏳ TBT. Participated in 「Round 20 SCORE MATCH」? Tell us about it→ https://schoolido.lu/events/Score%20Match%20Round%2021/ #LLSIF #スクフェス #LoveLive #ラブライブ #TBT
