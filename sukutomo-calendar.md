@@ -941,7 +941,7 @@ https://vignette.wikia.nocookie.net/love-live/images/e/eb/Kokoro_Magic_%22A_to_Z
 
 # November
 
-# 1
+### 1
 
 https://i.schoolido.lu/c/32Rin.png
 
@@ -963,7 +963,7 @@ https://i.schoolido.lu/songs/%E6%B0%B8%E9%81%A0%E3%83%95%E3%83%AC%E3%83%B3%E3%82
 
 🎶 On this day 2014 Printemps' 「Eien Friends」 released ✨ Discuss→ https://schoolido.lu/songs/%E6%B0%B8%E9%81%A0%E3%83%95%E3%83%AC%E3%83%B3%E3%82%B9%E3%82%99/ #LLSIF #スクフェス #LoveLive #ラブライブ #μsicforever 
 
-# 13
+## 13
 
 https://i.schoolido.lu/c/1515Rina.png
 
@@ -1062,7 +1062,32 @@ http://st.cdjapan.co.jp/pictures/l/03/33/LACA-9475.jpg
 
 # December
 
-## 14
+## 4
+
+https://i.schoolido.lu/songs/4lStTweAbbbIURauQHDHOOtBmI6LHbVV.png
+
+🎶 On this day 2019 CYaRon!'s 「Braveheart Coaster」 released ✨ Discuss→ https://schoolido.lu/songs/Braveheart%20Coaster/ #LLSIF #スクフェス #LoveLive #ラブライブ #Aqours 
+
+## 11
+
+https://i.schoolido.lu/songs/wcVsq0IWNR9lzyRo2sx2iaYuA6WlLEFp.jpg
+
+🎶 On this day 2019 Azalea's 「Amazing Travel DNA」 released ✨ Discuss→ https://schoolido.lu/songs/Amazing%20Travel%20DNA/ #LLSIF #スクフェス #LoveLive #ラブライブ #Aqours 
+
+
+## 12
+
+https://i.schoolido.lu/c/1945idolizedLeah.png
+
+🎂🎁🎈🍰 Kazuno Leah December 12→ https://schoolido.lu/idol/Kazuno%20Leah/ #LLSIF #スクフェス #LoveLive #ラブライブ 
+
+
+
+## 12
+
+https://i.schoolido.lu/c/1945idolizedLeah.png
+
+🎂🎁🎈🍰 Kazuno Leah December 12→ ## 14
 
 http://st.cdjapan.co.jp/pictures/l/04/47/LACA-15169.jpg?v=1
 
@@ -1073,6 +1098,12 @@ http://st.cdjapan.co.jp/pictures/l/04/47/LACA-15169.jpg?v=1
 https://i.schoolido.lu/songs/RFrL9YQXdTzsEt1I6DBJt7kn9UNylzUV.jpg
 
 🎶 On this day 2015 μ's 「Korekara」 released ✨ Discuss→ https://schoolido.lu/songs/%E3%81%93%E3%82%8C%E3%81%8B%E3%82%89/ #LLSIF #スクフェス #LoveLive #ラブライブ #μsicforever 
+
+## 16
+
+https://i.schoolido.lu/c/2049idolizedKanata.png
+
+🎂🎁🎈🍰 Kanata Konoe December 16th→ https://schoolido.lu/idol/Konoe%20Kanata/ #LLSIF #スクフェス #LoveLive #ラブライブ 
 
 ## 20
 
