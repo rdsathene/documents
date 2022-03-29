@@ -1,49 +1,40 @@
 ---
 tags: Sukutomo, Love Live!
+image: https://i.imgur.com/74UvaFU.jpg
 ---
 
 # Sukutomo Calendar
 
 *I realized I was looking up the same information, and crafting the same tweets from scratch year after year. I'm creating this both for myself, and whomever my successor will be. The links to images for the tweets appear above the tweets.* ***If using the HackMD version instead of GitHub, be sure to use the md edit mode to copy, so that you avoid pasting unencoded characters into TweetDeck.***
 
-Start date 2019-April, so anything newer than that needs to be added. Resources: [LL!](https://en.wikipedia.org/wiki/Love_Live!) | [LLS!](https://en.wikipedia.org/wiki/Love_Live!_Sunshine!!)
+Start date 2019-April, so anything newer than that needs to be added. Resources: [LL!](https://en.wikipedia.org/wiki/Love_Live!_discography#Love_Live!_School_Idol_Project) | [LLS!](https://en.wikipedia.org/wiki/Love_Live!_discography#Love_Live!_Sunshine!!)
 
-incorporate birthdays [see more here](https://decaf.kouhi.me/lovelive/index.php?title=Category:Other_Characters)  
-Dia Kurosawa- January 1st  
-Hanayo Koizumi- January 17th  
-Kasumi Nakasu- January 23rd  
-Emma Verde- February 5th  
-Kanan Matsuura- February 10th  
-Ayumu Uehara- March 1st  
-Hanamaru Kunikida- March 4th  
-Umi Sonoda- March 15th  
-Shizuku Osaka- April 3rd  
-You Watanabe- April 17th  
-Maki Nishikino- April 19th  
-Ai Miyashita- May 30th  
-Nozomi Tojo- June 9th  
-Mari Ohara- June 13th  
-Karin- June 29th  
-Yoshiko Tsushima- July 13th  
-Nico Yazawa- July 22nd  
-Chika Takami- August 1st  
-Honoka Kosaka- August 3rd  
-Setsuna Yuki- August 8th  
-Kotori Minami- September 12th  
-Riko Sakurauchi- September 19th  
-Ruby Kurosawa- September 21st  
-Eli Ayase- October 21st  
-Rin Hoshizora- November 1st  
-Rina Tennoji- November 13th  
-Kanata- December 16th  
-
-May 4 Kazuno Sarah  
-December 12 Kazuno Leah  
-
+[incorporate birthdays](https://hackmd.io/@rdsathene/B1Z-wdad4#Franchise-Character-Birthdays) [see more here](https://decaf.kouhi.me/lovelive/index.php?title=Category:Other_Characters)  
 
 # January
 
+## 1
+
+https://i.schoolido.lu/c/913idolizedDia.png
+
+🎂🎁🎈🍰 Dia Kurosawa January 1→ https://schoolido.lu/idol/Kurosawa%20Dia/ #LLSIF #スクフェス #LoveLive #ラブライブ #LoveLive_Sunshine #ラブライブサンシャイン #Aqours
+
+https://st.cdjapan.co.jp/pictures/l/03/44/LACA-9766.jpg
+
+🎶 On this day 2021 「Kurosawa Dia First Solo Concert Album - White First Love -」 released. ✨ Get your copy→ http://www.cdjapan.co.jp/aff/click.cgi/PytJTGW7Lok/5590/A364348/product%2FLACA-9766 #LLSIF #スクフェス #LoveLive #ラブライブ #Aqours #ラブライブサンシャイ 
+
+## 17
+
+https://i.schoolido.lu/c/44Hanayo.png
+
+🎂🎁🎈🍰 Hanayo Koizumi January 17→ https://schoolido.lu/idol/Koizumi%20Hanayo/ #LLSIF #スクフェス #LoveLive #ラブライブ #μsicforever
+
 ## 18
+
+https://st.cdjapan.co.jp/pictures/l/00/01/LABX-8441.jpg
+
+🎶 On this day 2020 Day One 「Love Live! Series 9th Anniversary: Love Live! Fest」 ✨ Memorialized→ http://www.cdjapan.co.jp/aff/click.cgi/PytJTGW7Lok/5590/A364348/product%2FLABX-8441 #LLSIF #スクフェス #LoveLive #ラブライブ #Aqours #SaintSnow #ラブライブサンシャイ #虹ヶ咲
+
 
 https://i.schoolido.lu/songs/HQk9T420OFjfgUdbDvkrIXGy1O3uH6hA.png
 
@@ -53,6 +44,12 @@ https://i.schoolido.lu/songs/VplYjSoYVhi3Eop5t4Fl2R1EhDeXYX4j.jpg
 
 🎶 On this day 2018 Aqours' 「WONDERFUL STORIES」 released ✨ Discuss→ https://schoolido.lu/songs/WONDERFUL%20STORIES/ #LLSIF #スクフェス #LoveLive #ラブライブ #Aqours
 
+## 19
+
+https://st.cdjapan.co.jp/pictures/l/00/01/LABX-8441.jpg
+
+🎶 On this day 2020 Day Two 「Love Live! Series 9th Anniversary: Love Live! Fest」 ✨ Memorialized→ http://www.cdjapan.co.jp/aff/click.cgi/PytJTGW7Lok/5590/A364348/product%2FLABX-8441 #LLSIF #スクフェス #LoveLive #ラブライブ #Aqours #SaintSnow #ラブライブサンシャイ #虹ヶ咲
+
 ## 20
 
 https://i.schoolido.lu/songs/%E9%8C%AF%E8%A6%9ACROSSROADS.jpg
@@ -60,6 +57,10 @@ https://i.schoolido.lu/songs/%E9%8C%AF%E8%A6%9ACROSSROADS.jpg
 🎶 On this day 2016 BiBi's 「Sakkaku CROSSROADS」 released ✨ Discuss→ https://schoolido.lu/songs/%E9%8C%AF%E8%A6%9ACROSSROADS/ #LLSIF #スクフェス #LoveLive #ラブライブ #μsicforever
 
 ## 23
+
+https://i.schoolido.lu/c/1513idolizedKasumi.png
+
+🎂🎁🎈🍰 Kasumi Nakasu January 23→ https://schoolido.lu/idol/Nakasu%20Kasumi/ #LLSIF #スクフェス #LoveLive #ラブライブ #虹ヶ咲
 
 https://i.schoolido.lu/songs/dgGjXwSPQh2RgnxQNbSCfG4EeO4wC8Lo.jpg
 
@@ -97,7 +98,6 @@ https://i.schoolido.lu/songs/%E3%82%BF%E3%82%AB%E3%83%A9%E3%83%A2%E3%83%8E%E3%82
 
 🎶 On this day 2014 µ's 「Takaramonos」 released ✨ Discuss→ https://schoolido.lu/songs/%E3%82%BF%E3%82%AB%E3%83%A9%E3%83%A2%E3%83%8E%E3%82%B9%E3%82%99/ #LLSIF #スクフェス #LoveLive #ラブライブ #μsicforever
 
-
 ## 30
 
 https://i.schoolido.lu/songs/XzrslwSHGKqggaxMI4rD6s0Bbw21maMv.jpg
@@ -118,6 +118,7 @@ https://st.cdjapan.co.jp/pictures/l/16/31/LABX-8110.jpg
 
 🎶 On this day 2015 day one 「Go-Go→Love Live! 2015 - Dream Sensation!」🌟 Memorialized→ http://www.cdjapan.co.jp/aff/click.cgi/PytJTGW7Lok/5590/A364348/product%2FLABX-8110 #LLSIF #スクフェス #LoveLive #ラブライブ #μsicforever
 
+
 # February
 
 ## 1
@@ -125,6 +126,12 @@ https://st.cdjapan.co.jp/pictures/l/16/31/LABX-8110.jpg
 https://st.cdjapan.co.jp/pictures/l/16/31/LABX-8110.jpg
 
 🎶 On this day 2015 day two 「Go-Go→Love Live! 2015 - Dream Sensation!」🌟 Memorialized→ http://www.cdjapan.co.jp/aff/click.cgi/PytJTGW7Lok/5590/A364348/product%2FLABX-8110 #LLSIF #スクフェス #LoveLive #ラブライブ #μsicforever
+
+## 5
+
+https://i.schoolido.lu/c/1800idolizedVerde.png
+
+🎂🎁🎈🍰 Emma Verde February 5→ https://schoolido.lu/idol/Emma%20Verde/ #LLSIF #スクフェス #LoveLive #ラブライブ #虹ヶ咲
 
 ## 6
 
@@ -145,8 +152,7 @@ https://i.schoolido.lu/songs/pD6xnQlgR59GbSexSo4XYNhbD6G1IvOY.jpg
 
 https://i.schoolido.lu/songs/SMgtcv7bXf3mYKCX2MfHNd3F4JZIKH1B.jpg
 
-🎶 On this day 2019 Saint Aqours Snow’s 「Brightest Melody」 released ✨ Discuss→ https://schoolido.lu/songs/Brightest%20Melody/ #LLSIF #スクフェス #LoveLive #ラブライブ #Aqours #SaintSnow 
-
+🎶 On this day 2019 Saint Aqours Snow’s 「Over The Next Rainbow」 released ✨ Discuss→ https://schoolido.lu/songs/Over%20The%20Next%20Rainbow/ #LLSIF #スクフェス #LoveLive #ラブライブ #Aqours #SaintSnow 
 
 ## 9
 
@@ -154,6 +160,11 @@ https://st.cdjapan.co.jp/pictures/l/09/22/LABM-7150.jpg
 
 🎶 On this day 2014 day two 「μ's→Next LoveLive! 2014: Endless Parade」🌟 Memorialized→ http://www.cdjapan.co.jp/aff/click.cgi/PytJTGW7Lok/5590/A364348/product%2FLABM-7150 #LLSIF #スクフェス #LoveLive #ラブライブ #μsicforever
 
+## 10
+
+https://i.schoolido.lu/c/788idolizedKanan.png
+
+🎂🎁🎈🍰 Kanan Matsuura - February 10→ https://schoolido.lu/idol/Matsuura%20Kanan/ #LLSIF #スクフェス #LoveLive #ラブライブ #Aqours
 
 ## 15
 
@@ -172,7 +183,6 @@ http://st.cdjapan.co.jp/pictures/l/16/30/LABX-8021.jpg
 https://i.schoolido.lu/songs/%E3%82%B9%E3%82%B9%E3%83%A1%E3%83%88%E3%82%A5%E3%83%A2%E3%83%AD%E3%82%A6.jpg
 
 🎶 On this day 2013 the trio’s 「Susume→Tomorrow」released✨ Discuss→ https://schoolido.lu/songs/%E3%82%B9%E3%82%B9%E3%83%A1%E2%86%92%E3%83%88%E3%82%A5%E3%83%A2%E3%83%AD%E3%82%A6/ #LLSIF #スクフェス #LoveLive #ラブライブ #μsicforever
-
 
 https://i.schoolido.lu/songs/STARTDASH.jpg
 
@@ -212,8 +222,13 @@ https://st.cdjapan.co.jp/pictures/l/03/39/LACA-9665.jpg
 
 🎶 On this day 2019 「Love Live! Sunshine!! The School Idol Movie Over the Rainbow OST: Sailing to the Rainbow」 ❄️❄️🍊⛵🍭🐬💮🌼🎹😈✨ released 💸 Get your copy→ http://www.cdjapan.co.jp/aff/click.cgi/PytJTGW7Lok/5590/A364348/product%2FLACA-9665 #LLSIF #スクフェス #LoveLive #ラブライブ #Aqours #SaintSnow
 
-
 # March
+
+## 1
+
+https://i.schoolido.lu/c/1472idolizedAyumu.png
+
+🎂🎁🎈🍰 Ayumu Uehara - March 1→ https://schoolido.lu/idol/Uehara%20Ayumu/ #LLSIF #スクフェス #LoveLive #ラブライブ #虹ヶ咲
 
 ## 2
 
@@ -221,17 +236,27 @@ https://i.schoolido.lu/songs/MOMENT_RING.jpg
 
 🎶 On this day 2016 µ's 「MOMENT RING」 released ✨ Discuss→ https://schoolido.lu/songs/MOMENT%20RING/ #LLSIF #スクフェス #LoveLive #ラブライブ #μsicforever
 
+## 4
+
+https://i.schoolido.lu/c/916Hanamaru.png
+
+🎂🎁🎈🍰 Hanamaru Kunikida - March 4→ https://schoolido.lu/idol/Kunikida%20Hanamaru/ #LLSIF #スクフェス #LoveLive #ラブライブ #ラブライブサンシャイ #Aqours
+
 ## 6
 
 https://i.schoolido.lu/songs/%E3%81%93%E3%82%8C%E3%81%8B%E3%82%89%E3%81%AESomeday.jpg
 
 🎶 On this day 2013 the septet's 「Kore kara no Someday」 released ✨ Discuss→ https://schoolido.lu/songs/%E3%81%93%E3%82%8C%E3%81%8B%E3%82%89%E3%81%AESomeday/ #LLSIF #スクフェス #LoveLive #ラブライブ #μsicforever
 
-
 https://i.schoolido.lu/songs/Wonder_zone.jpg
 
 🎶 On this day 2013 µ's 「Wonder zone」 released ✨ Discuss→ https://schoolido.lu/songs/Wonder%20zone/ #LLSIF #スクフェス #LoveLive #ラブライブ #μsicforever
 
+## 15
+
+https://i.schoolido.lu/c/804idolizedUmi.png
+
+🎂🎁🎈🍰 Umi Sonoda - March 15→ https://schoolido.lu/idol/Sonoda%20Umi/ #LLSIF #スクフェス #LoveLive #ラブライブ #μsicforever
 
 ## 22
 
@@ -245,18 +270,15 @@ https://i.schoolido.lu/songs/gUwYQdrChIgvD5qSbEYk6E8QwacPC4mX.jpg
 
 🎶 On this day 2018 the solo 「Beginner's Sailing」 released ✨ Discuss→ https://schoolido.lu/songs/Beginner%27s%20Sailing/ #LLSIF #スクフェス #LoveLive #ラブライブ #Aqours
 
-
 ## 24
 
 https://i.schoolido.lu/songs/efYn4lQ1ag7MVErcN6f3afQFa7xyEYZc.jpg
 
 🎶 On this day 2017 CYaRon!'s 「P.S. no Mukougawa」 released ✨ Discuss→ https://schoolido.lu/songs/P.S.%E3%81%AE%E5%90%91%E3%81%93%E3%81%86%E5%81%B4/ #LLSIF #スクフェス #LoveLive #ラブライブ #Aqours
 
-
 https://i.schoolido.lu/songs/eamIjZjMwl5MwO9KhibyJ2jgsf1wlQ4e.jpg
 
 🎶 On this day 2017 Azalea's 「LONELY TUNING」 released ✨ Discuss→ https://schoolido.lu/songs/LONELY%20TUNING/ #LLSIF #スクフェス #LoveLive #ラブライブ #Aqours
-
 
 https://i.schoolido.lu/songs/qbvUVRfv4McDadNtHX9yyrG52XWyNE4P.jpg
 
@@ -266,7 +288,11 @@ https://i.schoolido.lu/songs/k6aOr9tfS6lV0e5wbgLD17vGIHBS1xPE.jpg
 
 🎶 On this day 2017 Aqours' 「Taiyou o Oikakero!」 released ✨ Discuss→ https://schoolido.lu/songs/%E5%A4%AA%E9%99%BD%E3%82%92%E8%BF%BD%E3%81%84%E3%81%8B%E3%81%91%E3%82%8D%21/ #LLSIF #スクフェス #LoveLive #ラブライブ #Aqours
 
+## 25
 
+https://i.schoolido.lu/songs/Wjgf6CWNLd4cfvCEAbmK1698LOaUnvwn.png
+
+🎶 On this day 2020 µ's 「A Song for You! You? You!!」 released ✨ Discuss→ https://schoolido.lu/songs/A%20song%20for%20You%21%20You%3F%20You%21%21/ #LLSIF #スクフェス #LoveLive #ラブライブ #μsicforever
 
 ## 31
 
@@ -274,6 +300,9 @@ https://st.cdjapan.co.jp/pictures/l/16/42/LABX-8161.jpg
 
 🎶 On this day 2016 Day One 「μ's FinalLoveLive! 2016: μ'sic Forever」 🌟  Memorialized→ http://www.cdjapan.co.jp/aff/click.cgi/PytJTGW7Lok/5590/A364348/product%2FLABX-8161 #LLSIF #スクフェス #LoveLive #ラブライブ #μsicforever
 
+https://static.wikia.nocookie.net/love-live/images/2/22/Smile_smile_ship_start.jpg
+
+🎶 On this day 2021 Aqours' 「smile smile ship Start!」 released ✨ Discuss→ https://schoolido.lu/songs/ #LLSIF #スクフェス #LoveLive #ラブライブ #Aqours
 
 # April
 
@@ -289,41 +318,48 @@ http://st.cdjapan.co.jp/pictures/l/16/45/LABX-8164.jpg
 
 https://st.cdjapan.co.jp/pictures/l/05/02/LACA-15381.jpg
 
-🎶 On this day 2014 Solo Live! 2 from μ's Honoka Kousaka 「orange cheers!」 released ✨ Get your copy 💸 http://www.cdjapan.co.jp/aff/click.cgi/PytJTGW7Lok/5590/A364348/product%2FLACA-15381 #LoveLive #LLSIF #スクフェス #μsicforever
+🎶 On this day 2014 Solo Live! 2 from μ's Honoka Kousaka 「orange cheers!」 released ✨ Get your copy 💸 http://www.cdjapan.co.jp/aff/click.cgi/PytJTGW7Lok/5590/A364348/product%2FLACA-15381 #LoveLive #LLSIF #スクフェス #ラブライブ #μsicforever
 
 https://st.cdjapan.co.jp/pictures/l/05/03/LACA-15382.jpg
 
-🎶 On this day 2014 Solo Live! 2 from μ's Eri Ayase 「Ice Blue no Shunkan」 released ✨ Get your copy 💸 http://www.cdjapan.co.jp/aff/click.cgi/PytJTGW7Lok/5590/A364348/product%2FLACA-15382 #LoveLive #LLSIF #スクフェス #μsicforever
+🎶 On this day 2014 Solo Live! 2 from μ's Eri Ayase 「Ice Blue no Shunkan」 released ✨ Get your copy 💸 http://www.cdjapan.co.jp/aff/click.cgi/PytJTGW7Lok/5590/A364348/product%2FLACA-15382 #LoveLive #LLSIF #スクフェス #ラブライブ #μsicforever
 
 https://st.cdjapan.co.jp/pictures/l/05/04/LACA-15383.jpg
 
-🎶 On this day 2014 Solo Live! 2 from μ's Kotori Minami 「Junpaku Romance」 released ✨ Get your copy 💸 http://www.cdjapan.co.jp/aff/click.cgi/PytJTGW7Lok/5590/A364348/product%2FLACA-15383 #LoveLive #LLSIF #スクフェス #μsicforever
+🎶 On this day 2014 Solo Live! 2 from μ's Kotori Minami 「Junpaku Romance」 released ✨ Get your copy 💸 http://www.cdjapan.co.jp/aff/click.cgi/PytJTGW7Lok/5590/A364348/product%2FLACA-15383 #LoveLive #LLSIF #スクフェス #ラブライブ #μsicforever
 
 https://st.cdjapan.co.jp/pictures/l/05/05/LACA-15384.jpg
 
-🎶 On this day 2014 Solo Live! 2 from μ's Umi Sonoda 「Ao no Shinwa」 released ✨ Get your copy 💸 http://www.cdjapan.co.jp/aff/click.cgi/PytJTGW7Lok/5590/A364348/product%2FLACA-15384 #LoveLive #LLSIF #スクフェス #μsicforever
+🎶 On this day 2014 Solo Live! 2 from μ's Umi Sonoda 「Ao no Shinwa」 released ✨ Get your copy 💸 http://www.cdjapan.co.jp/aff/click.cgi/PytJTGW7Lok/5590/A364348/product%2FLACA-15384 #LoveLive #LLSIF #スクフェス #ラブライブ #μsicforever
 
-https://st.cdjapan.co.jp/pictures/l/05/05/LACA-15385.jpg
+## Present Placeholder
 
-🎶 On this day 2014 Solo Live! 2 from μ's Rin Hoshizora 「Ring a yellow bell」 released ✨ Get your copy 💸 http://www.cdjapan.co.jp/aff/click.cgi/PytJTGW7Lok/5590/A364348/product%2FLACA-15385 #LoveLive #LLSIF #スクフェス #μsicforever
 
-https://st.cdjapan.co.jp/pictures/l/05/05/LACA-15386.jpg
+https://st.cdjapan.co.jp/pictures/l/05/06/LACA-15385.jpg
 
-🎶 On this day 2014 Solo Live! 2 from μ's Maki Nishikino 「Scarlet Princess」 released ✨ Get your copy 💸 http://www.cdjapan.co.jp/aff/click.cgi/PytJTGW7Lok/5590/A364348/product%2FLACA-15386 #LoveLive #LLSIF #スクフェス #μsicforever
+🎶 On this day 2014 Solo Live! 2 from μ's Rin Hoshizora 「Ring a yellow bell」 released ✨ Get your copy 💸 http://www.cdjapan.co.jp/aff/click.cgi/PytJTGW7Lok/5590/A364348/product%2FLACA-15385 #LoveLive #LLSIF #スクフェス #ラブライブ #μsicforever
 
-https://st.cdjapan.co.jp/pictures/l/05/05/LACA-15387.jpg
+https://st.cdjapan.co.jp/pictures/l/05/07/LACA-15386.jpg
 
-🎶 On this day 2014 Solo Live! 2 from μ's Nozomi Tojo 「Violet Moon」 released ✨ Get your copy 💸 http://www.cdjapan.co.jp/aff/click.cgi/PytJTGW7Lok/5590/A364348/product%2FLACA-15387 #LoveLive #LLSIF #スクフェス #μsicforever
+🎶 On this day 2014 Solo Live! 2 from μ's Maki Nishikino 「Scarlet Princess」 released ✨ Get your copy 💸 http://www.cdjapan.co.jp/aff/click.cgi/PytJTGW7Lok/5590/A364348/product%2FLACA-15386 #LoveLive #LLSIF #スクフェス #ラブライブ #μsicforever
 
-https://st.cdjapan.co.jp/pictures/l/05/05/LACA-15388.jpg
+https://st.cdjapan.co.jp/pictures/l/05/08/LACA-15387.jpg
 
-🎶 On this day 2014 Solo Live! 2 from μ's Hanayo Koizumi 「Wakakusa no Season」 released ✨ Get your copy 💸 http://www.cdjapan.co.jp/aff/click.cgi/PytJTGW7Lok/5590/A364348/product%2FLACA-15388 #LoveLive #LLSIF #スクフェス #μsicforever
+🎶 On this day 2014 Solo Live! 2 from μ's Nozomi Tojo 「Violet Moon」 released ✨ Get your copy 💸 http://www.cdjapan.co.jp/aff/click.cgi/PytJTGW7Lok/5590/A364348/product%2FLACA-15387 #LoveLive #LLSIF #スクフェス #ラブライブ #μsicforever
 
-https://st.cdjapan.co.jp/pictures/l/05/05/LACA-15389.jpg
+https://st.cdjapan.co.jp/pictures/l/05/09/LACA-15388.jpg
 
-🎶 On this day 2014 Solo Live! 2 from μ's Niko Yazawa 「Momoiro Egao」 released ✨ Get your copy 💸 http://www.cdjapan.co.jp/aff/click.cgi/PytJTGW7Lok/5590/A364348/product%2FLACA-15389 #LoveLive #LLSIF #スクフェス #μsicforever
+🎶 On this day 2014 Solo Live! 2 from μ's Hanayo Koizumi 「Wakakusa no Season」 released ✨ Get your copy 💸 http://www.cdjapan.co.jp/aff/click.cgi/PytJTGW7Lok/5590/A364348/product%2FLACA-15388 #LoveLive #LLSIF #スクフェス #ラブライブ #μsicforever
+
+https://st.cdjapan.co.jp/pictures/l/05/10/LACA-15389.jpg
+
+🎶 On this day 2014 Solo Live! 2 from μ's Niko Yazawa 「Momoiro Egao」 released ✨ Get your copy 💸 http://www.cdjapan.co.jp/aff/click.cgi/PytJTGW7Lok/5590/A364348/product%2FLACA-15389 #LoveLive #LLSIF #スクフェス #ラブライブ #μsicforever
 
 ## 3
+
+https://i.schoolido.lu/cards/1Shizuku.png
+
+🎂🎁🎈🍰 Shizuku Osaka - April 3→ https://schoolido.lu/idol/Ousaka%20Shizuku/ #LLSIF #スクフェス #LoveLive #ラブライブ #虹ヶ咲
 
 https://i.schoolido.lu/songs/No_brand_girls.jpg
 
@@ -339,6 +375,18 @@ https://i.schoolido.lu/songs/x47L7VZ1VU24OQGSQgK2cyORcyY6hzAY.jpg
 
 🎶 On this day 2017 Aqours' 「Happy Party Train」 released ✨ Discuss→ https://schoolido.lu/songs/HAPPY%20PARTY%20TRAIN/ #LLSIF #スクフェス #LoveLive #ラブライブ #Aqours
 
+## 17
+
+https://i.schoolido.lu/c/923idolizedYou.png
+
+🎂🎁🎈🍰 You Watanabe - April 17→ https://schoolido.lu/idol/Watanabe%20You/ #LLSIF #スクフェス #LoveLive #ラブライブ #ラブライブサンシャイ #Aqours
+
+## 19
+
+https://i.schoolido.lu/c/51Maki.png
+
+🎂🎁🎈🍰 Maki Nishikino - April 19→ https://schoolido.lu/idol/Nishikino%20Maki/ #LLSIF #スクフェス #LoveLive #ラブライブ #μsicforever
+
 ## 22
 
 https://i.schoolido.lu/songs/%E3%83%9F%E3%81%AF%CE%BCsic%E3%81%AE%E3%83%9F.jpg
@@ -351,13 +399,11 @@ https://i.schoolido.lu/songs/8KhexoW6xvoHYSjCuVHpmkvrYtQawRqD.jpg
 
 🎶 On this day 2014 µ's 「Sore wa Bokutachi no Kiseki」 released ✨ Discuss→ https://schoolido.lu/songs/%E3%81%9D%E3%82%8C%E3%81%AF%E5%83%95%E3%81%9F%E3%81%A1%E3%81%AE%E5%A5%87%E8%B7%A1/ #LLSIF #スクフェス #LoveLive #ラブライブ #μsicforever
 
-
 ## 24
 
 https://i.schoolido.lu/songs/RnZCk7Ez8HGiT3E00suhThZQEbMIjN36.jpg
 
 🎶 On this day 2018 the solo 「RED GEM WINK」 released ✨ Discuss→ https://schoolido.lu/songs/RED%20GEM%20WINK/ #LLSIF #スクフェス #LoveLive #ラブライブ #Aqours
-
 
 https://i.schoolido.lu/songs/Bq95XZ1WSWIApDjatps9YERuQhgnyD9R.jpg
 
@@ -380,7 +426,6 @@ https://i.schoolido.lu/songs/aquarium.png
 
 🎶 On this day 2016 Aqours' 「Koi ni Naritai AQUARIUM」 released ✨ Discuss→ https://schoolido.lu/songs/%E6%81%8B%E3%81%AB%E3%81%AA%E3%82%8A%E3%81%9F%E3%81%84AQUARIUM/ #LLSIF #スクフェス #LoveLive #ラブライブ #Aqours
 
-
 http://st.cdjapan.co.jp/pictures/l/00/02/LABX-8290.jpg
 
 🎶 On this day 2018 Day One 「Saint Snow Presents Love Live! Sunshine!! Hakodate Unit Carnival」 ❄️❄️🍊⛵🍭🐬💮🌼🎹😈✨ Memorialized→ http://www.cdjapan.co.jp/aff/click.cgi/PytJTGW7Lok/5590/A364348/product%2FLABX-8290 #LLSIF #スクフェス #LoveLive #ラブライブ #Aqours #SaintSnow
@@ -393,6 +438,12 @@ http://st.cdjapan.co.jp/pictures/l/00/04/LABX-8292.jpg
 
 
 # May
+
+## 4
+ 
+https://i.schoolido.lu/c/1946idolizedSarah.png
+
+🎂🎁🎈🍰 Kazuno Sarah - May 4→ https://schoolido.lu/idol/Kazuno%20Sarah/ #LLSIF #スクフェス #LoveLive #ラブライブ #SaintSnow #ラブライブサンシャイ
 
 ## 8
 
@@ -473,6 +524,12 @@ https://i.schoolido.lu/songs/なわとび.jpg
 
 🎶 On this day 2013 the solo 「Nawatobi」 released ✨ Discuss→ https://schoolido.lu/songs/%E3%81%AA%E3%82%8F%E3%81%A8%E3%81%B2%E3%82%99/ #LLSIF #スクフェス #LoveLive #ラブライブ #μsicforever 
 
+## 30
+ 
+https://i.schoolido.lu/c/1473Ai.png
+
+🎂🎁🎈🍰 Ai Miyashita - May 30→ https://schoolido.lu/idol/Miyashita%20Ai/ #LLSIF #スクフェス #LoveLive #ラブライブ #虹ヶ咲
+
 ## 31
 
 https://i.schoolido.lu/songs/5QF0l9eYmqSyPqSzkmh8U1O8cX0OHGmp.jpg
@@ -492,8 +549,11 @@ https://st.cdjapan.co.jp/pictures/l/00/06/LABX-8390.jpg
 
 🎶 On this day 2019 Day One 「Aqours 5th Love Live! Next Sparkling!!」 (Saitama) 🍊⛵🎹💮✨🐬🍭🌼😈 Memorialized→ http://www.cdjapan.co.jp/aff/click.cgi/PytJTGW7Lok/5590/A364348/product%2FLABX-8390 #LLSIF #スクフェス #LoveLive #ラブライブ #Aqours
 
-
 ## 9
+
+https://i.schoolido.lu/c/43Nozomi.png
+
+🎂🎁🎈🍰 Nozomi Tojo - June 9→ https://schoolido.lu/idol/Toujou%20Nozomi/ #LLSIF #スクフェス #LoveLive #ラブライブ #µsicforever
 
 http://st.cdjapan.co.jp/pictures/l/16/46/LABX-8333.jpg
 
@@ -510,12 +570,17 @@ https://i.schoolido.lu/songs/Dancing_stars_on_me.jpg
 
 🎶 On this day 2014 μ’s 「Dancing stars on me!」 released ✨ Discuss→ https://schoolido.lu/songs/Dancing%20stars%20on%20me%21/ #LLSIF #スクフェス #LoveLive #ラブライブ #μsicforever 
 
+## 13
+
+https://i.schoolido.lu/c/793Mari.png
+
+🎂🎁🎈🍰 Mari Ohara - June 13→ https://schoolido.lu/idol/Ohara%20Mari/ #LLSIF #スクフェス #LoveLive #ラブライブ #Aqours
 
 ## 16
 
 http://st.cdjapan.co.jp/pictures/l/16/37/LABX-8044.jpg
 
-🎶 On this day 2013 「μ's 3rd Anniversary Love Live!」 (Yokohama) ⭐🎥⭐ Memorialized→ http://www.cdjapan.co.jp/aff/click.cgi/PytJTGW7Lok/5590/A364348/product%2FLABX-8044 #LLSIF #スクフェス #LoveLive #ラブライブ #Aqours
+🎶 On this day 2013 「μ's 3rd Anniversary Love Live!」 (Yokohama) ⭐🎥⭐ Memorialized→ http://www.cdjapan.co.jp/aff/click.cgi/PytJTGW7Lok/5590/A364348/product%2FLABX-8044 #LLSIF #スクフェス #LoveLive #ラブライブ #µsicforever
 
 
 ## 17
@@ -580,6 +645,12 @@ https://i.schoolido.lu/songs/%E5%91%8A%E7%99%BD%E6%97%A5%E5%92%8C%E3%81%A7%E3%81
 
 🎶 On this day 2012 the duet’s 「Kokuhaku Biyori, Desu!」 released ✨ Discuss→ https://schoolido.lu/songs/%E3%83%80%E3%82%A4%E3%83%A4%E3%83%A2%E3%83%B3%E3%83%89%E3%83%97%E3%83%AA%E3%83%B3%E3%82%BB%E3%82%B9%E3%81%AE%E6%86%82%E9%AC%B1/ #LLSIF #スクフェス #LoveLive #ラブライブ #μsicforever 
 
+## 29
+
+https://i.schoolido.lu/c/2760idolizedKarin.png
+
+🎂🎁🎈🍰 Karin Asaka - June 29→ https://schoolido.lu/idol/Asaka%20Karin/ #LLSIF #スクフェス #LoveLive #ラブライブ #虹ヶ咲
+
 ## 30
 
 https://i.schoolido.lu/songs/plBjFOzvOYk0vp5PdvWWlbBYkQM4s1Sd.jpg
@@ -631,7 +702,6 @@ https://i.schoolido.lu/songs/Happy_maker.jpg
 
 🎶 On this day 2014 μ's 「Happy Maker!」 released ✨ Discuss→ https://schoolido.lu/songs/Happy%20maker%21/ #LLSIF #スクフェス #LoveLive #ラブライブ #μsicforever 
 
-
 ## 13
 
 https://i.schoolido.lu/c/791Yoshiko.png
@@ -645,11 +715,15 @@ https://i.schoolido.lu/songs/%E5%83%95%E3%81%9F%E3%81%A1%E3%81%AF%E3%81%B2%E3%81
 
 🎶 On this day 2015 the trio's 「Bokutachi wa Hitotsu no Hikari」 released ✨ Discuss→ https://schoolido.lu/songs/%E5%83%95%E3%81%9F%E3%81%A1%E3%81%AF%E3%81%B2%E3%81%A8%E3%81%A4%E3%81%AE%E5%85%89/ #LLSIF #スクフェス #LoveLive #ラブライブ #μsicforever 
 
-
 https://i.schoolido.lu/songs/Future_style.jpg
 
 🎶 On this day 2015 the trio's 「Future style」 released ✨ Discuss→ https://schoolido.lu/songs/Future%20style/ #LLSIF #スクフェス #LoveLive #ラブライブ #μsicforever 
 
+## 17
+
+https://static.wikia.nocookie.net/love-live/images/7/74/Tang_Keke.png/revision/latest/scale-to-width-down/255?cb=20200714184733
+
+🎂🎁🎈🍰 Keke Tang July 17→ https://schoolido.lu/ #LLSIF #スクフェス #LoveLive #ラブライブ #SuperStar!
 
 ## 20
 
@@ -664,6 +738,9 @@ https://i.schoolido.lu/c/36Nico.png
 
 🎂🎁🎈🍰 Nico Yazawa July 22→ https://schoolido.lu/idol/Yazawa%20Nico/ #LLSIF #スクフェス #LoveLive #ラブライブ #μsicforever 
 
+https://i.imgur.com/CkXrSJ4.jpg
+
+🎶 On this day 2020 Aqours’ 「Fantastic Departure!」 released ✨ Discuss→ https://schoolido.lu/songs/ #LLSIF #スクフェス #LoveLive #ラブライブ #Aqours
 
 ## 24
 
@@ -682,7 +759,6 @@ https://i.schoolido.lu/songs/soldier_game.jpg
 
 🎶 On this day 2012 the trio's 「Soldier Game」 released ✨ Discuss→ https://schoolido.lu/songs/soldier%20game/ #LLSIF #スクフェス #LoveLive #ラブライブ #μsicforever 
 
-
 ## 26
 
 https://i.schoolido.lu/songs/%E3%81%AB%E3%81%93%E3%81%B5%E3%82%9A%E3%82%8A%E5%A5%B3%E5%AD%90%E9%81%93.jpg
@@ -693,6 +769,7 @@ https://i.schoolido.lu/songs/%E3%81%AB%E3%81%93%E3%81%B5%E3%82%9A%E3%82%8A%E5%A5
 https://i.imgur.com/JliJ1Ol.jpg
 
 🎶 On this day 2019 Aqours’ 「I-n-g, I Try!!」 released ✨ Discuss→ https://schoolido.lu/songs/ #LLSIF #スクフェス #LoveLive #ラブライブ #Aqours
+
 
 ## 27
 
@@ -719,6 +796,10 @@ https://i.schoolido.lu/c/786Chika.png
 
 🎂🎁🎈🍰 Takami Chika August 1→ https://schoolido.lu/idol/Takami%20Chika/ #LLSIF #スクフェス #LoveLive #ラブライブ #LoveLive_Sunshine #ラブライブサンシャイン #Aqours
 
+https://st.cdjapan.co.jp/pictures/l/03/38/LACA-9760.jpg
+
+🎶 On this day 2020 「Chika Takami First Solo Concert Album: One More Sunshine Story」 🍊 released 💸 Get your copy→ http://www.cdjapan.co.jp/aff/click.cgi/PytJTGW7Lok/5590/A364348/product%2FLACA-9760 #LLSIF #スクフェス #LoveLive #ラブライブ #Aqours 
+
 ## 2
 
 https://i.schoolido.lu/songs/3TwMMvVS7uIwORz6HfhvIjFQFjwJGXdm.jpg
@@ -733,11 +814,9 @@ https://i.schoolido.lu/songs/JcShu4vYIm8wEIxC55sIt4kuddaweYZb.jpg
 
 🎶 On this day 2017 the duet's 「Jimo Ai ♡ Mantan ☆ Summer Life」 released ✨ Discuss→ https://schoolido.lu/songs/%E5%9C%B0%E5%85%83%E6%84%9B%E2%99%A1%E6%BA%80%E3%82%BF%E3%83%B3%E2%98%86%E3%82%B5%E3%83%9E%E3%83%BC%E3%83%A9%E3%82%A4%E3%83%95/ #LLSIF #スクフェス #LoveLive #ラブライブ #Aqours 
 
-
 https://i.schoolido.lu/songs/ju5VGYkIUEYmpbrn10WnWM5j1A6TEHgM.jpg
 
 🎶 On this day 2017 the duet's 「Natsu no Owari no Amaoto ga」 released ✨ Discuss→ https://schoolido.lu/songs/%E5%9C%B0%E5%85%83%E6%84%9B%E2%99%A1%E6%BA%80%E3%82%BF%E3%83%B3%E2%98%86%E3%82%B5%E3%83%9E%E3%83%BC%E3%83%A9%E3%82%A4%E3%83%95/ #LLSIF #スクフェス #LoveLive #ラブライブ #Aqours 
-
 
 ## 3
 
@@ -745,22 +824,19 @@ https://i.schoolido.lu/songs/j_aq_0476_1.png
 
 🎶 On this day 2016 the trio's 「Kimeta yo Hand in Hand」 released ✨ Discuss→ https://schoolido.lu/songs/%E6%B1%BA%E3%82%81%E3%81%9F%E3%82%88Hand%20in%20Hand/ #LLSIF #スクフェス #LoveLive #ラブライブ #Aqours 
 
-
 https://i.schoolido.lu/songs/4540774145218.jpg
 
 🎶 On this day 2016 the trio's 「Daisuki dattara Daijoubu!」 released ✨ Discuss→ https://schoolido.lu/songs/%E3%82%BF%E3%82%99%E3%82%A4%E3%82%B9%E3%82%AD%E3%81%9F%E3%82%99%E3%81%A3%E3%81%9F%E3%82%89%E3%82%BF%E3%82%99%E3%82%A4%E3%82%B7%E3%82%99%E3%83%A7%E3%82%A6%E3%83%95%E3%82%99%21/ #LLSIF #スクフェス #LoveLive #ラブライブ #Aqours 
-
 
 https://i.schoolido.lu/c/28Honoka.png
 
 🎂🎁🎈🍰 Honoka Kosaka August 3→ https://schoolido.lu/idol/Kousaka%20Honoka/ #LLSIF #スクフェス #LoveLive #ラブライブ #μsicforever
 
-
 ## 5
 
 http://st.cdjapan.co.jp/pictures/l/05/15/LACA-15498.jpg
 
-🎶 On this day the soundtrack *Notes of School Idol Days: Curtain Call* released ✨ Get your copy 💸 http://www.cdjapan.co.jp/aff/click.cgi/PytJTGW7Lok/5590/A364348/product%2FLACA-15498 #LoveLive #LLSIF #スクフェス #μsicforever
+🎶 On this day the soundtrack 「Notes of School Idol Days: Curtain Call」 released ✨ Get your copy 💸 http://www.cdjapan.co.jp/aff/click.cgi/PytJTGW7Lok/5590/A364348/product%2FLACA-15498 #LoveLive #LLSIF #スクフェス #μsicforever
 
 ## 8
 
@@ -768,13 +844,17 @@ https://i.schoolido.lu/c/1474Setsuna.png
 
 🎂🎁🎈🍰 Setsuna Yuki August 8→ https://schoolido.lu/idol/Yuki%20Setsuna/ #LLSIF #スクフェス #LoveLive #ラブライブ #虹ヶ咲
 
+## 19
+
+https://i.imgur.com/AN9X8PL.png
+
+🎶 On this day 2020 Saint Snow's 「Dazzling White Town」 released ✨ Discuss→ https://schoolido.lu/songs/ #LLSIF #スクフェス #LoveLive #ラブライブ #SaintSnow 
 
 ## 21
 
 https://i.schoolido.lu/songs/Pure_girls_project.jpg
 
 🎶 On this day 2013 Printemps' 「Pure Girls Project」 released ✨ Discuss→ https://schoolido.lu/songs/Pure%20girls%20project/ #LLSIF #スクフェス #LoveLive #ラブライブ #μsicforever 
-
 
 ## 24
 
@@ -797,7 +877,11 @@ https://i.schoolido.lu/songs/%E5%83%95%E3%82%89%E3%81%AELIVE_%E5%90%9B%E3%81%A8%
 
 http://st.cdjapan.co.jp/pictures/l/16/22/BCXA-1155.jpg
 
-🎶📽️ On this day the Blu-ray *Love Live! μ's Live Collection* released ✨ Get your copy 💸 http://www.cdjapan.co.jp/aff/click.cgi/PytJTGW7Lok/5590/A364348/product%2FBCXA-1155 #LoveLive #LLSIF #スクフェス #μsicforever
+🎶📽️ On this day the Blu-ray 「Love Live! μ's Live Collection」 released ✨ Get your copy 💸 http://www.cdjapan.co.jp/aff/click.cgi/PytJTGW7Lok/5590/A364348/product%2FBCXA-1155 #LoveLive #LLSIF #スクフェス #μsicforever
+
+https://i.imgur.com/xxpTd5X.jpg
+
+🎶 On this day 2020 Aqours' 「Jimo-Ai Dash!」 released ✨ Discuss→ https://schoolido.lu/songs/ #LLSIF #スクフェス #LoveLive #ラブライブ #Aqours 
 
 ## 27
 
@@ -805,18 +889,15 @@ https://i.schoolido.lu/songs/%E3%81%8F%E3%82%8B%E3%82%8A%E3%82%93MIRACLE.jpg
 
 🎶 On this day 2014 the solo 「Kururin MIRACLE」 released ✨ Discuss→ https://schoolido.lu/songs/%E3%81%8F%E3%82%8B%E3%82%8A%E3%82%93MIRACLE/ #LLSIF #スクフェス #LoveLive #ラブライブ #μsicforever 
 
-
 http://st.cdjapan.co.jp/pictures/l/03/26/LACA-9356.jpg
 
 🎶 On this day the soundtrack 「Notes of School idol days ~ Glory ~」 released ✨ Get your copy 💸 http://www.cdjapan.co.jp/aff/click.cgi/PytJTGW7Lok/5590/A364348/product%2FLACA-9356 #LoveLive #LLSIF #スクフェス #μsicforever
-
 
 ## 28
 
 https://i.imgur.com/DLoZ94d.jpg
 
 🎶 On this day 2013 the duet's 「Garasu no Hanazono」 released ✨ Discuss→ https://schoolido.lu/songs/ #LLSIF #スクフェス #LoveLive #ラブライブ #μsicforever 
-
 
 # September
 
@@ -826,24 +907,39 @@ https://i.schoolido.lu/songs/Wonderful_Rush.jpg
 
 🎶 On this day 2012 μ's 「Wonderful Rush」 released ✨ Discuss→ https://schoolido.lu/songs/Wonderful%20Rush/ #LLSIF #スクフェス #LoveLive #ラブライブ #μsicforever 
 
+## 12
+
+https://i.schoolido.lu/c/30Kotori.png
+
+🎂🎁🎈🍰 Minami Kotori September 12→ https://schoolido.lu/idol/Minami%20Kotori/ #LLSIF #スクフェス #LoveLive #ラブライブ #μsicforever
+
 ## 14
 
 https://i.schoolido.lu/songs/QOHApa44svi7wPFDMaLtIF95f7HPue9A.png
 
 🎶 On this day 2016 the sextet's 「Yume de Yozora wo Terashitai」 released ✨ Discuss→ https://schoolido.lu/songs/%E5%A4%A2%E3%81%A6%E3%82%99%E5%A4%9C%E7%A9%BA%E3%82%92%E7%85%A7%E3%82%89%E3%81%97%E3%81%9F%E3%81%84/ #LLSIF #スクフェス #LoveLive #ラブライブ #Aqours 
 
-
 https://i.schoolido.lu/songs/HozwabETW8RyOMhuEMXS7nU4lyfPGZ6A.png
 
 🎶 On this day 2016 Aqours' 「Mijuku DREAMER」 released ✨ Discuss→ https://schoolido.lu/songs/%E6%9C%AA%E7%86%9FDREAMER/ #LLSIF #スクフェス #LoveLive #ラブライブ #Aqours 
 
+## 19
+
+https://i.schoolido.lu/c/787Riko.png
+
+🎂🎁🎈🍰 Sakurauchi Riko September 19→ https://schoolido.lu/idol/Sakurauchi%20Riko/ #LLSIF #スクフェス #LoveLive #ラブライブ #Aqours
+
+## 21
+
+https://i.schoolido.lu/c/918Ruby.png
+
+🎂🎁🎈🍰 Kurosawa Ruby September 21→ https://schoolido.lu/idol/Kurosawa%20Ruby/ #LLSIF #スクフェス #LoveLive #ラブライブ #Aqours
 
 ## 24
 
 https://i.schoolido.lu/songs/Storm_in_Lover.jpg
 
 🎶 On this day 2014 the duet's 「Storm in Lover」 released ✨ Discuss→ https://schoolido.lu/songs/Storm%20in%20Lover/ #LLSIF #スクフェス #LoveLive #ラブライブ #μsicforever 
-
 
 ## 25
 
@@ -863,12 +959,17 @@ https://i.schoolido.lu/songs/Pops_heart%E3%81%A6%E3%82%99%E8%B8%8A%E3%82%8B%E3%8
 
 🎶 On this day 2016 Aqours' 「Pops heart de Odoru damon!」 released ✨ Discuss→ https://schoolido.lu/songs/Pops%20heart%E3%81%A6%E3%82%99%E8%B8%8A%E3%82%8B%E3%82%93%E3%81%9F%E3%82%99%E3%82%82%E3%82%93%21/ #LLSIF #スクフェス #LoveLive #ラブライブ #Aqours 
 
+## 28
+
+https://i.schoolido.lu/c/2857Sumire.png
+
+🎂🎁🎈🍰 Sumire Heanna September 28→ https://schoolido.lu/idol/Heanna%20Sumire/ #LLSIF #スクフェス #LoveLive #ラブライブ #Superstar!!
+
 ## 29
 
 http://st.cdjapan.co.jp/pictures/l/16/48/LABX-8255.jpg
 
 🎶 On this day 2018 Day One 「Aqours 2nd Love Live! Happy Party Train Tour (Saitama)」 🍊⛵🍭🐬💮🌼🎹😈✨ Memorialized→ http://www.cdjapan.co.jp/aff/click.cgi/PytJTGW7Lok/5590/A364348/product%2FLABX-8255 #LLSIF #スクフェス #LoveLive #ラブライブ #Aqours 
-
 
 ## 30
 
@@ -885,6 +986,12 @@ https://i.schoolido.lu/songs/shangrilashower.png
 
 🎶 On this day 2014 μ's 「Shangri-La Shower」 released ✨ Discuss→ https://schoolido.lu/songs/Shangri-La%20Shower/ #LLSIF #スクフェス #LoveLive #ラブライブ #μsicforever 
 
+## 5
+
+
+https://i.schoolido.lu/c/2974idolizedShioriko.png
+
+🎂🎁🎈🍰 Mifune Shioriko October 5→ https://schoolido.lu/idol/Mifune%20Shioriko/ #LLSIF #スクフェス #LoveLive #ラブライブ 
 
 ## 7
 
@@ -892,12 +999,24 @@ https://i.schoolido.lu/songs/%E5%90%9B%E3%81%AE%E3%81%93%E3%81%93%E3%82%8D%E3%81
 
 🎶 On this day 2015 Aqours' 「Kimi no Kokoro wa Kagayaiteru kai?」 released ✨ Discuss→ https://schoolido.lu/songs/%E5%90%9B%E3%81%AE%E3%81%93%E3%81%93%E3%82%8D%E3%81%AF%E8%BC%9D%E3%81%84%E3%81%A6%E3%82%8B%E3%81%8B%E3%81%84%3F/ #LLSIF #スクフェス #LoveLive #ラブライブ #Aqours 
 
+https://st.cdjapan.co.jp/pictures/l/03/42/LACA-9780.jpg
+
+🎶 On this day the soundtrack 「Lovelive! Sunshine!! Aqours Chronicle (2015-2017) [Regular Edition]」 released ✨ Get your copy 💸 http://www.cdjapan.co.jp/aff/click.cgi/PytJTGW7Lok/5590/A364348/product%2FLACA-9780 #LoveLive #LLSIF #スクフェス #Aqours
+
+https://st.cdjapan.co.jp/pictures/l/03/42/LACA-9860.jpg
+
+🎶 On this day the soundtrack 「Lovelive! Sunshine!! Aqours Chronicle (2018-2020) [Regular Edition]」 released ✨ Get your copy 💸 http://www.cdjapan.co.jp/aff/click.cgi/PytJTGW7Lok/5590/A364348/product%2FLACA-9860 #LoveLive #LLSIF #スクフェス #Aqours
 
 ## 17
 
 http://st.cdjapan.co.jp/pictures/l/04/42/LACA-15244.jpg
 
 🎶 On this day 2017 「Love Live Radio Kagai Katsudō: Nicorinpana Theme Song 」 💸 Backorder→ http://www.cdjapan.co.jp/aff/click.cgi/PytJTGW7Lok/5590/A364348/product%2FLACA-15244 #LLSIF #スクフェス #LoveLive #ラブライブ #μsicforever 
+
+https://st.cdjapan.co.jp/pictures/l/00/04/LABX-8460.jpg
+
+🎶 On this day the soundtrack 「Lovelive! Sunshine!! Saint Snow 1st GIG - Welcome to Dazzling White Town - Blu-ray Memorial Box
+」 released ✨ Get your copy 💸 http://www.cdjapan.co.jp/aff/click.cgi/PytJTGW7Lok/5590/A364348/product%2FLABX-8460 #LoveLive #LLSIF #スクフェス #SaintSnow
 
 ## 21
 
@@ -911,20 +1030,17 @@ https://i.schoolido.lu/songs/wkKcSGOEX4WiwL67TdlVhwWoAiBhB7ZR.jpg
 
 🎶 On this day 2017 Aqours' 「Mirai no Bokura wa Shitteru yo」 released ✨ Discuss→ https://schoolido.lu/songs/%E6%9C%AA%E6%9D%A5%E3%81%AE%E5%83%95%E3%82%89%E3%81%AF%E7%9F%A5%E3%81%A3%E3%81%A6%E3%82%8B%E3%82%88/ #LLSIF #スクフェス #LoveLive #ラブライブ #Aqours 
 
-
 ## 26
 
 https://i.schoolido.lu/songs/%E7%A9%BA%E3%82%82%E5%BF%83%E3%82%82%E6%99%B4%E3%82%8C%E3%82%8B%E3%81%8B%E3%82%89.jpg
 
 🎶 On this day 2016 the trio's 「Sora mo Kokoro mo Hareru kara」 released ✨ Discuss→ https://schoolido.lu/songs/%E7%A9%BA%E3%82%82%E5%BF%83%E3%82%82%E6%99%B4%E3%82%8C%E3%82%8B%E3%81%8B%E3%82%89/ #LLSIF #スクフェス #LoveLive #ラブライブ #Aqours 
 
-
 ## 28
 
 https://i.schoolido.lu/songs/HEART_to_HEART.jpg
 
 🎶 On this day 2015 μ's 「HEART to HEART!」 released ✨ Discuss→ https://schoolido.lu/songs/HEART%20to%20HEART%21/ #LLSIF #スクフェス #LoveLive #ラブライブ #μsicforever 
-
 
 ## 29
 
@@ -947,6 +1063,19 @@ https://i.schoolido.lu/c/32Rin.png
 
 🎂🎁🎈🍰 Hoshizora Rin November 1→ https://schoolido.lu/idol/Hoshizora%20Rin/ #LLSIF #スクフェス #LoveLive #ラブライブ #μsicforever
 
+## 7
+
+https://st.cdjapan.co.jp/pictures/l/00/04/LABX-8460.jpg
+
+🎶 On this day 2020 Day One 「 Saint Snow 1st GIG - Welcome to Dazzling White Town」 ❄️❄️ Memorialized→ http://www.cdjapan.co.jp/aff/click.cgi/PytJTGW7Lok/5590/A364348/product%2FLABX-8460 #LLSIF #スクフェス #LoveLive #ラブライブ #SaintSnow 
+
+## 8
+
+https://st.cdjapan.co.jp/pictures/l/00/04/LABX-8460.jpg
+
+🎶 On this day 2020 Day Two 「 Saint Snow 1st GIG - Welcome to Dazzling White Town」 ❄️❄️ Memorialized→ http://www.cdjapan.co.jp/aff/click.cgi/PytJTGW7Lok/5590/A364348/product%2FLABX-8460 #LLSIF #スクフェス #LoveLive #ラブライブ #SaintSnow 
+
+
 ## 9
 
 https://i.schoolido.lu/songs/xZzk2khbdEpqOfvMHyRz3s7KRnqUjTxs.png
@@ -955,7 +1084,7 @@ https://i.schoolido.lu/songs/xZzk2khbdEpqOfvMHyRz3s7KRnqUjTxs.png
 
 https://i.schoolido.lu/songs/17w5SCifX4nLu9g003S7GVqVRCRG1gu7.png
 
-🎶 On this day 2016 Aqours' 「Mirai Ticket」 released ✨ Discuss→ https://schoolido.lu/songs/MIRAI%20TICKET/ #LLSIF #スクフェス #LoveLive #ラブライブ #Aqours 
+🎶 On this day 2016 Aqours' 「Mirai Ticket」 released ✨ Discuss→ https://schoolido.lu/songs/MIRAI%20TICKET/ #LLSIF #スクフェス #LoveLive #ラブライブ #Aqours
 
 ## 12
 
@@ -968,7 +1097,6 @@ https://i.schoolido.lu/songs/%E6%B0%B8%E9%81%A0%E3%83%95%E3%83%AC%E3%83%B3%E3%82
 https://i.schoolido.lu/c/1515Rina.png
 
 🎂🎁🎈🍰 Tennoji Rina November 13→ https://schoolido.lu/idol/Tennoji%20Rina/ #LLSIF #スクフェス #LoveLive #ラブライブ 
-
 
 ## 15
 
@@ -1013,7 +1141,6 @@ https://i.imgur.com/L8F1DBL.jpg
 https://i.schoolido.lu/songs/yvWOi2EpxZOQbY9xUt1uoX8D8RMrJs6f.jpg
 
 🎶 On this day 2018 the second year trio's 「Marine Border Parasol」 released ✨ Discuss→ https://schoolido.lu/songs/Marine%20Border%20Parasol/ #LLSIF #スクフェス #LoveLive #ラブライブ #Aqours 
-
 
 ## 25
 
@@ -1068,12 +1195,23 @@ https://i.schoolido.lu/songs/4lStTweAbbbIURauQHDHOOtBmI6LHbVV.png
 
 🎶 On this day 2019 CYaRon!'s 「Braveheart Coaster」 released ✨ Discuss→ https://schoolido.lu/songs/Braveheart%20Coaster/ #LLSIF #スクフェス #LoveLive #ラブライブ #Aqours 
 
+## 6
+
+https://i.idol.st/u/card/art/2x/558R-Mia-Taylor-Nijigasaki-High-Third-Year-The-New-York-Diva-c3lLUw.png
+
+🎂🎁🎈🍰 Mia Taylor December 6→ https://schoolido.lu/idol/ #LLSIF #スクフェス #LoveLive #ラブライブ #虹ヶ咲
+
+## 9
+
+https://st.cdjapan.co.jp/pictures/l/03/20/LACM-24030.jpg?v=1
+
+🎶 On this day 2020 Aqours「Duo Trio Collection CD Vol.2 Winter Vacation」released. 🍊⛵🍭🐬💮🌼🎹😈✨ Get your copy➡️ http://www.cdjapan.co.jp/aff/click.cgi/PytJTGW7Lok/5590/A364348/product%2FLACM-24030 #LoveLive #LLSIF #スクフェス #Aqours
+
 ## 11
 
 https://i.schoolido.lu/songs/wcVsq0IWNR9lzyRo2sx2iaYuA6WlLEFp.jpg
 
 🎶 On this day 2019 Azalea's 「Amazing Travel DNA」 released ✨ Discuss→ https://schoolido.lu/songs/Amazing%20Travel%20DNA/ #LLSIF #スクフェス #LoveLive #ラブライブ #Aqours 
-
 
 ## 12
 
@@ -1081,13 +1219,7 @@ https://i.schoolido.lu/c/1945idolizedLeah.png
 
 🎂🎁🎈🍰 Kazuno Leah December 12→ https://schoolido.lu/idol/Kazuno%20Leah/ #LLSIF #スクフェス #LoveLive #ラブライブ 
 
-
-
-## 12
-
-https://i.schoolido.lu/c/1945idolizedLeah.png
-
-🎂🎁🎈🍰 Kazuno Leah December 12→ ## 14
+## 14
 
 http://st.cdjapan.co.jp/pictures/l/04/47/LACA-15169.jpg?v=1
 
@@ -1128,13 +1260,11 @@ https://i.schoolido.lu/songs/GlpV15PwChe2QnQVDuoOXNWXowomZnda.jpg
 
 🎶 On this day 2017 Aqours' 「One More Sunshine Story」 released ✨ Discuss→ https://schoolido.lu/songs/Daydream%20Warrior/https://schoolido.lu/songs/Daydream%20Warrior/ #LLSIF #スクフェス #LoveLive #ラブライブ #Aqours 
 
-
 ## 23
 
 https://i.schoolido.lu/songs/%E6%80%9D%E3%81%84%E5%87%BA%E4%BB%A5%E4%B8%8A%E3%81%AB%E3%81%AA%E3%82%8A%E3%81%9F%E3%81%8F%E3%81%A6.jpg
 
 🎶 On this day 2015 Lily White's 「Onaji Hoshi ga Mitai」 released ✨ Discuss→ https://schoolido.lu/songs/%E6%80%9D%E3%81%84%E5%87%BA%E4%BB%A5%E4%B8%8A%E3%81%AB%E3%81%AA%E3%82%8A%E3%81%9F%E3%81%8F%E3%81%A6/ #LLSIF #スクフェス #LoveLive #ラブライブ #μsicforever 
-
 
 ## 24
 
@@ -1151,16 +1281,100 @@ https://i.schoolido.lu/songs/CheerDay_CheerGirl.jpg
 
 https://i.schoolido.lu/songs/BvP4knTYWt22Wt1iFtILVXO9DuPLmyVU.png
 
-
 🎶 On this day 2014 Lily White's 「Onaji Hoshi ga Mitai」 released ✨ Discuss→ https://schoolido.lu/songs/%E5%90%8C%E3%81%97%E3%82%99%E6%98%9F%E3%81%8B%E3%82%99%E8%A6%8B%E3%81%9F%E3%81%84/ #LLSIF #スクフェス #LoveLive #ラブライブ #μsicforever 
-
 
 https://i.schoolido.lu/songs/tNDk91EoBO1BYZThBEv2HtU4p8DDm52N.jpg
 
 🎶 On this day 2014 BiBi's 「Silent tonight」 released ✨ Discuss→ https://schoolido.lu/songs/Silent%20tonight/ #LLSIF #スクフェス #LoveLive #ラブライブ #μsicforever 
 
-
 https://i.schoolido.lu/songs/%E3%81%9D%E3%81%97%E3%81%A6%E6%9C%80%E5%BE%8C%E3%81%AE%E3%83%98%E3%82%9A%E3%83%BC%E3%82%B7%E3%82%99%E3%81%AB%E3%81%AF.jpg
 
 🎶 On this day 2014 μ's 「Soshite Saigo no Page ni wa」 released ✨ Discuss→ https://schoolido.lu/songs/%E3%81%9D%E3%81%97%E3%81%A6%E6%9C%80%E5%BE%8C%E3%81%AE%E3%83%98%E3%82%9A%E3%83%BC%E3%82%B7%E3%82%99%E3%81%AB%E3%81%AF/ #LLSIF #スクフェス #LoveLive #ラブライブ #μsicforever 
+
+## 30
+
+
+Aqours Countdown Love Live! White Island[aj]	Aqours[ak]	December 30–31, 2020
+
+## 31
+
+
+
+---
+
+# [Franchise Character Birthdays](#bday)
+
+## January
+
+- January 01 - Kurosawa Dia
+- January 17 - Koizumi Hanayo
+- January 23 - Nakasu Kasumi
+
+## February
+
+- February 05 - Emma Verde
+- February 10 - Matsuura Kanan
+- February 15 - Lanzhu Zhong
+- February 25 - Chisato Arashi
+
+## March
+
+- March 01 - Uehara Ayumu
+- March 04 - Kunikida Hanamaru
+- March 15 - Sonoda Umi
+
+## April
+
+- April 03 - Osaka Shizuku
+- April 17 - Watanabe You
+- April 19 - Nishikino Maki
+
+## May
+
+- May 01 - Kanon Shibuya
+- May 04 - Sarah Kazuno
+- May 30 - Miyashita Ai
+
+## June
+
+- June 09 - Tojo Nozomi
+- June 13 - Ohara Mari
+- June 29 - Karin Asaka
+
+## July
+
+- July 13 - Tsushima Yoshiko
+- July 17 - Keke Tang
+- July 22 - Yazawa Nico
+
+## August
+
+- August 01 - Takami Chika
+- August 03 - Kosaka Honoka
+- August 08 - Yuki Setsuna
+
+## September
+
+- September 12 - Minami Kotori
+- September 19 - Sakurauchi Riko
+- September 21 - Kurosawa Ruby
+- September 28 - Sumire Heanna
+
+## October
+
+- October 5 - Mifune Shioriko
+- October 21 - Ayase Eli
+
+
+## November
+
+- November 01 - Hoshizora Rin
+- November 13 - Tennoji Rina
+- November 24 - Ren Hazuki
+
+## December
+
+- December 6 - Mia Taylor
+- December 12 - Leah Kazuno
+- December 16 - Konoe Kanata
 
